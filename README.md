@@ -1,5 +1,8 @@
 # vnch.github.io
 
+- [ ] [Tất cả nhân dân đều có quyền ra ứng cử và thành lập đảng mới!](/docs/kien-tao/dan-ung-cu-thu-tuong.md)
+- [x] [VC (Việt Cộng) tạo ngày 30/4 làm dân Vietnam 'TỰ NHỤC'](/docs/kien-tao/tu_nhuc.md)
+
 ## YÊU-SÁCH-3-ĐẶC-KHU-VNCH | TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNGCẦUDÂNÝ RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.jpg)
 
