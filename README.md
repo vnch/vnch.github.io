@@ -1,5 +1,6 @@
 # vnch.github.io
 
+
 ## GIÁM SÁT CHẤT LƯỢNG
 - [x] [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
 - [x] [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/vncs-tu-nhuc/tu-nhuc.md)
@@ -19,3 +20,6 @@
 
 ### Người Việt chọn Samsung hay SaigonPhone? Nếu ViệtCộng không bị lừa tạo ra ngày 30/4!
 ![Saigon Phone](/public/static/images/SaiGonPhone-vs-Samsung.jpg)
+
+## TÔN GIÁO
+- [x] [Phật Thích Ca Buddha **từ bỏ thiên-đàng-giả**](/ton-giao/phat-thich-ca-tu-bo-thien-dang-gia.md)
