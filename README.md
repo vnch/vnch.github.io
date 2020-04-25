@@ -5,8 +5,8 @@
 - [x] [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/vncs-tu-nhuc/tu-nhuc.md)
 
 ## KIẾN TẠO
-- [ ] [Việt-Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**, sẽ thành rồng 2 đầu, cơ hội vô World Cup tăng lên!](/kien-tao/doi-bong-da-dac-khu-vnch.md)
-- [ ] [Ý tưởng bầu cử bằng **thi đấu bóng đá**](/kien-tao/doi-bong-da-dac-khu-vnch.md)
+- [ ] [Việt-Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**, sẽ thành rồng 2 đầu, cơ hội vô World Cup tăng lên!](/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
+- [ ] [Ý tưởng bầu cử bằng **thi đấu bóng đá**](/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
 - [ ] [Tất cả nhân dân đều có quyền ra **ứng cử và thành lập đảng mới**!](/kien-tao/dan-ung-cu-thu-tuong.md)
 
 ### YÊU-SÁCH-3-ĐẶC-KHU-VNCH | TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
