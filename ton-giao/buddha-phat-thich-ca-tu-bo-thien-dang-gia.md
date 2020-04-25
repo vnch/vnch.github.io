@@ -1,5 +1,5 @@
-# Phật Thích Ca Budda **từ bỏ thiên-đàng-giả**
-- [x] Budda từ bỏ cái thiên-đàng-giả cho chính vua cha tạo ra. Chính hành động dám từ bỏ này, mới có nhân quả tìm ra được con đường giác ngộ!
+# Phật Thích Ca Buddha **từ bỏ thiên-đàng-giả**
+- [x] Buddha từ bỏ cái thiên-đàng-giả cho chính vua cha tạo ra. Chính hành động dám từ bỏ này, mới có nhân quả tìm ra được con đường giác ngộ!
 - [x] Ở VN thì đảng-CS được coi là cha sanh mẹ đẻ ra nước Việt??? Đáng tiếc đảng-CS đã tạo ra quá nhiều **thiên-đàng-giả: cải cách ruộng đất kiểu tận diệt, thời bao cấp làm theo năng lực hưởng theo nhu cầu vô lý, kinh tế thị trường giả cầy, tự do ngôn luận & biểu tình chỉ ghi cho có lệ trong hiến pháp...***
 
 # Vì sao các tôn giáo khác không thể lật được CS, ngoại trừ Phật Giáo
