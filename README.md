@@ -22,4 +22,4 @@
 ![Saigon Phone](/public/static/images/SaiGonPhone-vs-Samsung.jpg)
 
 ## TÔN GIÁO
-- [x] [Phật Thích Ca Buddha **từ bỏ thiên-đàng-giả**](/ton-giao/phat-thich-ca-tu-bo-thien-dang-gia.md)
+- [x] [Phật Thích Ca Buddha **từ bỏ thiên-đàng-giả**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
