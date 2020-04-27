@@ -2,6 +2,7 @@
 
 ## TOC
 - [GIÁM SÁT CHẤT LƯỢNG](#giám-sát-chất-lượng)
+  - [VC là loại không những **thù dai** mà còn **hám danh & hám lợi**](#giám-sát-chất-lượng)
   - [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](#giám-sát-chất-lượng)
   - [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](#giám-sát-chất-lượng)
 - [KIẾN TẠO](#kiến-tạo)
@@ -16,6 +17,7 @@
   - [Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**](#tôn-giáo)
 
 ## GIÁM SÁT CHẤT LƯỢNG
+- [x] VC là loại không những **thù dai** mà còn **hám danh & hám lợi**
 - [x] [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
 - [x] [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/vncs-tu-nhuc/tu-nhuc.md)
 
