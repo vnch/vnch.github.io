@@ -15,6 +15,8 @@
 - [TÔN GIÁO](#tôn-giáo)
   - [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**](#tôn-giáo)
   - [Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**](#tôn-giáo)
+- [KHỞI KIỆN VIỆT CỘNG](#khởi-kiện-việt-cộng)
+  - [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](#khởi-kiện-việt-cộng)
 
 ## GIÁM SÁT CHẤT LƯỢNG
 - [x] VC là loại không những **thù dai** mà còn **hám danh & hám lợi**
@@ -40,3 +42,6 @@
 ## TÔN GIÁO
 - [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
 - [x] Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
+
+## KHỞI KIỆN VIỆT CỘNG
+- [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
