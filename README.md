@@ -6,7 +6,7 @@
   - [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](#giám-sát-chất-lượng)
   - [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](#giám-sát-chất-lượng)
 - [KIẾN TẠO](#kiến-tạo)
-  - [**YÊU-SÁCH-3-ĐẶC-KHU-VNCH | TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU**](#yêu-sách-3-đặc-khu-vnch--trưng-cầu-dân-ý--rồng-2-đầu)
+  - [**YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU**](#yêu-sách-3-đặc-khu-vnch--trưng-cầu-dân-ý--rồng-2-đầu)
   - [Việt-Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**](#kiến-tạo)
   - [Ý tưởng bầu cử bằng **thi đấu bóng đá**](#kiến-tạo)
   - [Tất cả nhân dân đều có quyền ra **ứng cử và thành lập đảng mới**](#kiến-tạo)
