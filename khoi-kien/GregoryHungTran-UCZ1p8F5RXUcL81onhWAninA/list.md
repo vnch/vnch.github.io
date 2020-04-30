@@ -1,4 +1,4 @@
-# Nếu hải ngoại mà không khởi kiện tên VC Gregory Hung Tran này!
+# Từ năm 2018, nếu hải ngoại mà không khởi kiện tên VC Gregory Hung Tran tội phỉ báng!
 
 ## Thì chỉ số nằm vùng của người đó sẽ tăng cao. Đâu khác gì bọn VC không dám kiện tranh chấp biển đông với tung-cộng
 ## TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH???
@@ -17,6 +17,7 @@
 - [ ] [Trương Quốc Huy-Q5YbNhUr5fg](https://youtu.be/Q5YbNhUr5fg) [hải ngoại]
 - [ ] [Nguyễn Văn Đài-HoZvy5DL4Cg](https://youtu.be/HoZvy5DL4Cg) [hải ngoại]
 - [ ] [Quân Trương-DHLNLgOw66Y](https://youtu.be/DHLNLgOw66Y) [hải ngoại]
+- [ ] [Trần Thị Ái Liên, Mạn đàm về Ái L..-RX16PuxuhBI](https://youtu.be/RX16PuxuhBI) [hải ngoại]
 
 ## Tên VC Gregory Hung Tran chưa dám chửi
 
