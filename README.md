@@ -1,11 +1,12 @@
-### YÊU-SÁCH-3-ĐẶC-KHU-VNCH | TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
+## YÊU-SÁCH-3-ĐẶC-KHU-VNCH | TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 * Chấp VC mở 3 khu cho tung-cộng luôn. Cạnh tranh thử coi đặc khu nào được nhiều dân Việt chào đón nhất.
 * VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?**
 ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNGCẦUDÂNÝ RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.jpg)
 
 ## TOC
 - [GIÁM SÁT CHẤT LƯỢNG](#giám-sát-chất-lượng)
-  - [VC là loại không những **thù dai** mà còn **hám danh & hám lợi**](#giám-sát-chất-lượng)
+  - [Việt-Cộng năm 2020 KHÔNG làm được gì](#giám-sát-chất-lượng)
+  - [VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**](#giám-sát-chất-lượng)
   - [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](#giám-sát-chất-lượng)
   - [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](#giám-sát-chất-lượng)
 - [KIẾN TẠO](#kiến-tạo)
@@ -22,7 +23,8 @@
   - [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](#khởi-kiện-việt-cộng)
 
 ## GIÁM SÁT CHẤT LƯỢNG
-- [x] VC là loại không những **thù dai** mà còn **hám danh & hám lợi**
+- [x] [Việt-Cộng **năm 2020 KHÔNG làm được gì**](/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
+- [x] VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**
 - [x] [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
 - [x] [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/vncs-tu-nhuc/tu-nhuc.md)
 
