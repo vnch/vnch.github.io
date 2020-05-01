@@ -1,6 +1,6 @@
 ## Cẩm nang trả lời những câu hỏi ngớ ngẫn của DLV
 
-- DLV: 1 đảng tốt hơn nhiều đảng cãi nhau
+### DLV: 1 đảng tốt hơn nhiều đảng cãi nhau
   - **Ngôi nhà** để xây được  thì cần có ít nhất **3 cột trụ**, cả thế giới đều **xây nhà 4 cột trụ**
   - **Bếp lò** nấu ăn cũng cần có ít nhất là **3 chân, 4 chân** mới đỡ được cái nồi chảo
   - **Cái ghế, cái bàn** còn phải cần có **2 chân, 4 chân**
@@ -20,12 +20,12 @@
     - Con người muốn THẢI tốt thì có tới **2 lỗ thải**, 1 lỗ thải nước, 1 lỗ thải rắn
     - Tại sao chỉ có 1 tim, 1 gan, 1 bao tử? Vì những bộ phận này chỉ là phần bộ lọc trung chuyển chứ không phải nạp và xử lí chính
 
-- DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa
+### DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa
   - **Chính VC mới là kẻ tạo bạo lực và chiến tranh nhiều nhất**
   - Luật biểu tình ôn hòa có trong hiến pháp những chúng nó vẫn đàn áp người biểu tình
   - Hải ngoại muốn thêm đảng để **giám sát chất lượng** của đảng VC, nhưng VC nhất định không cho!
   - VC thích dựng lên bạo lực, hết trò thì chúng nó lại vu cáo là khủng-bố, dù người hải ngoại chỉ lên internet live stream công khai
 
-- DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt
+### DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt
   - Muốn chống tham nhũng thì phải có **hệ thống giám sát chất lượng**. Chính VC đã **sai thiết kế hệ thống** ngay từ đầu vì chỉ có độc đảng, không thể nào giám sát được!
   - Hỏi ngược lại **DLV có muốn xài sản phẩm, đồ ăn thức uống, sữa trẻ em... mà không có giám sát kiểm định chất lượng không**?
