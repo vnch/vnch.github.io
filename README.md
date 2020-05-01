@@ -44,3 +44,4 @@
 
 ## KHỞI KIỆN VIỆT CỘNG
 - [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
+- [x] Doanh nhân Trịnh Vĩnh Bình (Vua chả giỏ) đã thắng kiện bọn VC. VC là chuyên đi phá hoại kinh doanh sản xuất!
