@@ -3,8 +3,14 @@
 * VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?**
 ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNGCẦUDÂNÝ RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.jpg)
 
+| Cẩm nang trả lời những câu hỏi ngớ ngẫn của DLV |
+| ------------- |
+| [DLV: 1 đảng tốt hơn nhiều đảng cãi nhau](/cam-nang/tra-loi-dlv.md#dlv-1-đảng-tốt-hơn-nhiều-đảng-cãi-nhau) |
+| [DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-yêu-hòa-bình-ghét-chiến-tranh-hải-ngoại-đừng-về-lật-đổ-nữa) |
+| [DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-tham-nhũng-chỉ-là-số-ít-còn-đảng-và-hệ-thống-vẫn-tốt) |
+
 ## TOC
-- [GIÁM SÁT CHẤT LƯỢNG](#giám-sát-chất-lượng)
+- [GIÁM SÁT CHẤT LƯỢNG - SỰ TỆ HẠI CỦA VC](#giám-sát-chất-lượng)
   - [Việt-Cộng năm 2020 KHÔNG làm được gì](#giám-sát-chất-lượng)
   - [VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**](#giám-sát-chất-lượng)
   - [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](#giám-sát-chất-lượng)
@@ -23,10 +29,11 @@
   - [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](#khởi-kiện-việt-cộng)
 
 ## GIÁM SÁT CHẤT LƯỢNG
-- [x] [Việt-Cộng **năm 2020 KHÔNG làm được gì**](/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
-- [x] VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**
-- [x] [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
-- [x] [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/vncs-tu-nhuc/tu-nhuc.md)
+### SỰ TỆ HẠI CỦA VC
+- [x] (Quá tệ) [Việt-Cộng **năm 2020 KHÔNG làm được gì**](/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
+- [x] (Quá tệ) VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**
+- [x] (Quá tệ) [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
+- [x] (Quá tệ) [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/vncs-tu-nhuc/tu-nhuc.md)
 
 ## KIẾN TẠO
 - [ ] [Việt-Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**, sẽ thành rồng 2 đầu, cơ hội vô World Cup tăng lên!](/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
