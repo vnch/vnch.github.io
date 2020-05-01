@@ -29,6 +29,8 @@
 - [ ] Đạo diễn Trần Nhật Phong
 - [ ] Luật sư Nguyễn Văn Đài
 - [ ] Nhà văn Dương Thu Hương
+- [ ] Lisa Phạm
+- [ ] Tan Thai
 - [ ] Huy Đức Thần Sấm Sét
 - [ ] Mã Tiểu Linh
 - [ ] Rose Đào
