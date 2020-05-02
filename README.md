@@ -1,16 +1,17 @@
-## YÊU-SÁCH-3-ĐẶC-KHU-VNCH | TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
+## YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
 | YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | SAIGON-PHONE HAY SAMSUNG? |
 | :---------------------------------------- | :------------------------ |
-| Chấp VC mở 3 khu cho tung-cộng luôn. Cạnh tranh thử coi đặc khu nào được nhiều dân Việt chào đón nhất. | Nếu VC không bị lừa tạo ra ngày 30/4 |
+| Chấp VC mở 3 khu cho tung-cộng luôn. Cạnh tranh thử coi đặc khu nào được nhiều dân Việt chào đón nhất. | **Nếu VC không bị lừa tạo ra ngày 30/4** |
 | VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?** | Người Việt chọn SAIGON-PHONE hay SAMSUNG? |
-| ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNGCẦUDÂNÝ RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.jpg) |
+| ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.jpg) |
 
-| Cẩm nang trả lời những câu hỏi ngớ ngẫn của DLV |
+| Cẩm nang trả lời những **câu hỏi/lý luận** ngớ ngẫn của DLV. Tâm lý **'tự nhục của VC'**  |
 | :------------- |
 | [DLV: 1 đảng tốt hơn nhiều đảng cãi nhau](/cam-nang/tra-loi-dlv.md#dlv-1-đảng-tốt-hơn-nhiều-đảng-cãi-nhau) |
 | [DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-yêu-hòa-bình-ghét-chiến-tranh-hải-ngoại-đừng-về-lật-đổ-nữa) |
 | [DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-tham-nhũng-chỉ-là-số-ít-còn-đảng-và-hệ-thống-vẫn-tốt) |
+| [DLV: Dù gì thì VC cũng đã thắng VNCH](/cam-nang/tra-loi-dlv.md#dlv-dù-gì-thì-vc-cũng-đã-thắng-vnch) |
 
 ## TOC
 - [GIÁM SÁT CHẤT LƯỢNG - SỰ TỆ HẠI CỦA VC](#giám-sát-chất-lượng)
