@@ -1,10 +1,10 @@
 ## YÊU-SÁCH-3-ĐẶC-KHU-VNCH | TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
-| YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý |
-| :------------- |
-| Chấp VC mở 3 khu cho tung-cộng luôn. Cạnh tranh thử coi đặc khu nào được nhiều dân Việt chào đón nhất. |
-| VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?** |
-| ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNGCẦUDÂNÝ RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.jpg) |
+| YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | SAIGON-PHONE HAY SAMSUNG? |
+| :---------------------------------------- | :------------------------ |
+| Chấp VC mở 3 khu cho tung-cộng luôn. Cạnh tranh thử coi đặc khu nào được nhiều dân Việt chào đón nhất. | Nếu VC không bị lừa tạo ra ngày 30/4 |
+| VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?** | Người Việt chọn SAIGON-PHONE hay SAMSUNG? |
+| ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNGCẦUDÂNÝ RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.jpg) |
 
 | Cẩm nang trả lời những câu hỏi ngớ ngẫn của DLV |
 | :------------- |
@@ -14,7 +14,7 @@
 
 ## TOC
 - [GIÁM SÁT CHẤT LƯỢNG - SỰ TỆ HẠI CỦA VC](#giám-sát-chất-lượng)
-  - [Việt-Cộng năm 2020 KHÔNG làm được gì](#giám-sát-chất-lượng)
+  - [Việt-Cộng năm 2020 **KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](#giám-sát-chất-lượng)
   - [VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**](#giám-sát-chất-lượng)
   - [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](#giám-sát-chất-lượng)
   - [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](#giám-sát-chất-lượng)
@@ -33,7 +33,28 @@
 
 ## GIÁM SÁT CHẤT LƯỢNG
 ### SỰ TỆ HẠI CỦA VC
-- [x] (Quá tệ) [Việt-Cộng **năm 2020 KHÔNG làm được gì**](/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
+- [x] (Quá tệ) [Việt-Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
+
+| (Quá tệ) Việt-Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại** |
+| :------------- |
+| VC năm 2020/01 **KHÔNG** làm được **MÁY TÍNH ĐIỆN TOÁN LƯỢNG TỬ** |
+| VC năm 2020/02 **KHÔNG** làm được **ĐẦU BÚT BI NGUYÊN TỬ** |
+| VC năm 2020/03 **KHÔNG** làm được **TÀU ĐIỆN NGẦM** |
+| VC năm 2020/04 **KHÔNG** làm được **TÀU ĐIỆN CAO TỐC** |
+| VC năm 2020/05 **KHÔNG** làm được **ĐỘNG CƠ XE, ỐC VÍT HIỆU SUẤT CAO** |
+| VC năm 2020/06 **KHÔNG** làm được **XĂNG TỪ DẦU THÔ** |
+| VC năm 2020/07 **KHÔNG** làm được **HẠT NHỰA TỪ DẦU THÔ** |
+| VC năm 2020/08 **KHÔNG** làm được **TÀU CHIẾN** |
+| VC năm 2020/09 **KHÔNG** làm được **TÀU NGẦM** |
+| VC năm 2020/10 **KHÔNG** làm được **PHI CƠ CHỞ KHÁCH** |
+| VC năm 2020/11 **KHÔNG** làm được **PHẢN LỰC CƠ CHIẾN ĐẤU, TÀNG HÌNH** |
+| VC năm 2020/12 **KHÔNG** làm được **HÀNG KHÔNG MẪU HẠM** |
+| VC năm 2020/13 **KHÔNG** làm được **PIN LITHIUM** |
+| VC năm 2020/14 **KHÔNG** làm được **MÀN HÌNH CẢM ỨNG, MÀN HÌNH LCD, MÀN HÌNH OLED** |
+| VC năm 2020/15 **KHÔNG** làm được **VI CHÍP ĐIỆN TOÁN, CHIP VIỄN THÔNG** |
+| VC năm 2020/16 **KHÔNG** làm được **VỆ TINH VŨ TRỤ** |
+| VC năm 2020/17 **KHÔNG** làm được **VŨ KHÍ NGUYÊN TỬ, ĐẦU ĐẠN HẠT NHÂN** |
+
 - [x] (Quá tệ) VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**
 - [x] (Quá tệ) [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
 - [x] (Quá tệ) [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/vncs-tu-nhuc/tu-nhuc.md)
@@ -46,7 +67,6 @@
 ## GIẢI ẢO, TƯ DUY, SO SÁNH
 
 ### Người Việt chọn Samsung hay SaigonPhone? Nếu ViệtCộng không bị lừa tạo ra ngày 30/4!
-![Saigon Phone](/public/static/images/SaiGonPhone-vs-Samsung.jpg)
 
 ## TÔN GIÁO
 - [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
