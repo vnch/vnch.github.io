@@ -11,12 +11,13 @@
 - [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
 - [x] Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
 
-| Cẩm nang trả lời những **câu hỏi/lý luận** ngớ ngẫn của DLV. Tâm lý **'tự nhục của VC'**  |
+| Cẩm nang trả lời những **câu hỏi/lý luận** ngớ ngẫn của Dư Luận Viên CS (DLV). Tâm lý **'tự nhục của VC'**  |
 | :------------- |
 | [DLV: 1 đảng tốt hơn nhiều đảng cãi nhau](/cam-nang/tra-loi-dlv.md#dlv-1-đảng-tốt-hơn-nhiều-đảng-cãi-nhau) |
 | [DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-yêu-hòa-bình-ghét-chiến-tranh-hải-ngoại-đừng-về-lật-đổ-nữa) |
 | [DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-tham-nhũng-chỉ-là-số-ít-còn-đảng-và-hệ-thống-vẫn-tốt) |
 | [DLV: Dù gì thì VC cũng đã thắng VNCH](/cam-nang/tra-loi-dlv.md#dlv-dù-gì-thì-vc-cũng-đã-thắng-vnch) |
+| [DLV: chê hải ngoại ‘ko giúp đc gì cho dân tộc này, chỉ suốt ngày bơi móc, ganh tỵ’](/cam-nang/tra-loi-dlv.md#dlv-chê-hải-ngoại-ko-giúp-đc-gì-cho-dân-tộc-này-chỉ-suốt-ngày-bơi-móc-ganh-tỵ) |
 
 ## TOC
 
