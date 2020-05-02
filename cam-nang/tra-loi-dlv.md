@@ -29,3 +29,6 @@
 ### DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt
   - Muốn chống tham nhũng thì phải có **hệ thống giám sát chất lượng**. Chính VC đã **sai thiết kế hệ thống** ngay từ đầu vì chỉ có độc đảng, không thể nào giám sát được!
   - Hỏi ngược lại **DLV có muốn xài sản phẩm, đồ ăn thức uống, sữa trẻ em... mà không có giám sát kiểm định chất lượng không**?
+
+### DLV: Dù gì thì VC cũng đã thắng VNCH
+  - Thời hiện đại đã chứng minh rõ ràng khi nhìn **North Korea** và **South Korea**. Tại sao lao động VN không đi lao động ở N.Korea, mà toàn **qua S.Korea để làm ăn**? Xứ nào mới là _phản động & kém văn minh_?
