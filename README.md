@@ -6,6 +6,11 @@
 | VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?** | Người Việt chọn SAIGON-PHONE hay SAMSUNG? |
 | ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.jpg) |
 
+## TÔN GIÁO
+- [x] **VC tạo nghiệp ngày 30/4**. Dân tốn tiền **đi máy bay Mỹ, qua S.Korea làm thuê**! Nếu VC không TẠO-NGHIỆP-30/4 thì dân _đi xe honda xuống VNCH làm ăn có phải tiện hơn không_???
+- [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
+- [x] Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
+
 | Cẩm nang trả lời những **câu hỏi/lý luận** ngớ ngẫn của DLV. Tâm lý **'tự nhục của VC'**  |
 | :------------- |
 | [DLV: 1 đảng tốt hơn nhiều đảng cãi nhau](/cam-nang/tra-loi-dlv.md#dlv-1-đảng-tốt-hơn-nhiều-đảng-cãi-nhau) |
@@ -14,6 +19,7 @@
 | [DLV: Dù gì thì VC cũng đã thắng VNCH](/cam-nang/tra-loi-dlv.md#dlv-dù-gì-thì-vc-cũng-đã-thắng-vnch) |
 
 ## TOC
+
 - [GIÁM SÁT CHẤT LƯỢNG - SỰ TỆ HẠI CỦA VC](#giám-sát-chất-lượng)
   - [Việt-Cộng năm 2020 **KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](#giám-sát-chất-lượng)
   - [VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**](#giám-sát-chất-lượng)
@@ -33,6 +39,7 @@
   - [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](#khởi-kiện-việt-cộng)
 
 ## GIÁM SÁT CHẤT LƯỢNG
+
 ### SỰ TỆ HẠI CỦA VC
 - [x] (Quá tệ) [Việt-Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
 
@@ -61,18 +68,16 @@
 - [x] (Quá tệ) [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/vncs-tu-nhuc/tu-nhuc.md)
 
 ## KIẾN TẠO
+
 - [ ] [Việt-Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**, sẽ thành rồng 2 đầu, cơ hội vô World Cup tăng lên!](/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
 - [ ] [Ý tưởng bầu cử bằng **thi đấu bóng đá**](/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
 - [ ] [Tất cả nhân dân đều có quyền ra **ứng cử và thành lập đảng mới**!](/kien-tao/dan-ung-cu-thu-tuong.md)
 
 ## GIẢI ẢO, TƯ DUY, SO SÁNH
 
-### Người Việt chọn Samsung hay SaigonPhone? Nếu ViệtCộng không bị lừa tạo ra ngày 30/4!
-
-## TÔN GIÁO
-- [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
-- [x] Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
+- [ ] Người Việt chọn Samsung hay SaigonPhone? Nếu ViệtCộng không bị lừa tạo ra ngày 30/4!
 
 ## KHỞI KIỆN VIỆT CỘNG
+
 - [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
-- [x] Doanh nhân Trịnh Vĩnh Bình (Vua chả giỏ) đã thắng kiện bọn VC. VC là chuyên đi phá hoại kinh doanh sản xuất!
+- [x] Doanh nhân **Trịnh Vĩnh Bình (Vua chả giỏ) đã thắng kiện bọn VC**. VC là chuyên đi phá hoại kinh doanh sản xuất!
