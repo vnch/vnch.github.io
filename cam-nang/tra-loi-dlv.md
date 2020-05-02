@@ -1,4 +1,4 @@
-## Cẩm nang trả lời những câu hỏi ngớ ngẫn của DLV
+## Cẩm nang trả lời những câu hỏi/lý luận ngớ ngẫn của DLV. Tâm lý 'tự nhục của VC' 
 
 ### DLV: 1 đảng tốt hơn nhiều đảng cãi nhau
   - **Ngôi nhà** để xây được  thì cần có ít nhất **3 cột trụ**, cả thế giới đều **xây nhà 4 cột trụ**
@@ -31,4 +31,10 @@
   - Hỏi ngược lại **DLV có muốn xài sản phẩm, đồ ăn thức uống, sữa trẻ em... mà không có giám sát kiểm định chất lượng không**?
 
 ### DLV: Dù gì thì VC cũng đã thắng VNCH
-  - Thời hiện đại đã chứng minh rõ ràng khi nhìn **North Korea** và **South Korea**. Tại sao lao động VN không đi lao động ở N.Korea, mà toàn **qua S.Korea để làm ăn**? Xứ nào mới là _phản động & kém văn minh_?
+  - Thời hiện đại đã chứng minh rõ ràng khi nhìn **North Korea** và **South Korea**.
+  - Tại sao lao động VN không đi lao động ở __N.Korea__, mà toàn **qua S.Korea để làm ăn**? Xứ nào mới là __phản động__ & **kém văn minh**?
+
+### DLV: chê hải ngoại 'ko giúp đc gì cho dân tộc này, chỉ suốt ngày bơi móc, ganh tỵ'
+  - Tết năm nào 'kiều bào' hải ngoại cũng 'bới móc ganh tỵ' với VC bằng những đồng đô la xanh tươi rói
+  - DLV đang chửi bác sĩ Lý Văn Lượng 'bới móc' virus sớm quá phải không?
+  - Những tên đã đàn áp bác sĩ Lý Văn Lượng nó có chịu trách nhiệm gì không? Bọn chúng làm sụp đổ sản xuất của tung-cộng, các nước sẽ rút hết sản xuất về sau đợt dịch 2020 này! VC thấy cái ngu chưa, VC không biết rút kinh nghiệm, cứ đòi làm theo kiểu độc-tài-công-an-trị thì sẽ thiệt hại giống vậy thôi
