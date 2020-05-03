@@ -6,10 +6,11 @@
 | VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?** | Người Việt chọn SAIGON-PHONE hay SAMSUNG? |
 | ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.jpg) |
 
-## TÔN GIÁO
+## TÔN GIÁO & LUẬT PHÁP
 - [x] **VC tạo nghiệp ngày 30/4**. Dân tốn tiền **đi máy bay Mỹ, qua S.Korea làm thuê**! Nếu VC không TẠO-NGHIỆP-30/4 thì dân _đi xe honda xuống VNCH làm ăn có phải tiện hơn không_???
 - [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
 - [x] Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
+- [x] Các nước dân chủ đều có mô hình **BỒI THẨM ĐOÀN**, tất cả dân có kiến thức đều được trao quyền xét xử **trọng án**. Còn xứ VC lúc nào cũng coi dân là ngu dốt nên không có quyền tham gia xét xử
 
 | Cẩm nang trả lời những **câu hỏi/lý luận** ngớ ngẫn của Dư Luận Viên CS (DLV). Tâm lý **'tự nhục của VC'**  |
 | :------------- |
