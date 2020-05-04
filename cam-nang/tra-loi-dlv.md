@@ -1,5 +1,9 @@
 ## Cẩm nang trả lời những câu hỏi/lý luận ngớ ngẫn của DLV. Tâm lý 'tự nhục của VC' 
 
+### DLV: Cho rằng DLV là viết tắt của Dân Lưu Vong (chui thùng container, trốn ở lại South Korea)
+  - 'Dân Lưu Vong' phải là những người sinh ra ở VC mà **chui vô thùng container**, quá cảnh ở China, rồi trốn qua bên Euro! Sao không ở luôn bên China anh em với VC cho tiện?
+  - 'Dân Lưu Vong' phải là những người dòng họ **nhà quan VC có hậu-duệ-quan-hệ**, sau đó đi ngoại giao qua South Korea, rồi **trốn ở lại South Korea** luôn! Ủa sao không trốn qua _North Korea_ cho 'thắm tình đồng chí'
+
 ### DLV: 1 đảng tốt hơn nhiều đảng cãi nhau
   - **Ngôi nhà** để xây được  thì cần có ít nhất **3 cột trụ**, cả thế giới đều **xây nhà 4 cột trụ**
   - **Bếp lò** nấu ăn cũng cần có ít nhất là **3 chân, 4 chân** mới đỡ được cái nồi chảo

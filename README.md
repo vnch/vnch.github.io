@@ -21,6 +21,7 @@
 | [DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-tham-nhũng-chỉ-là-số-ít-còn-đảng-và-hệ-thống-vẫn-tốt) |
 | [DLV: Dù gì thì VC cũng đã thắng VNCH](/cam-nang/tra-loi-dlv.md#dlv-dù-gì-thì-vc-cũng-đã-thắng-vnch) |
 | [DLV: chê hải ngoại ‘ko giúp đc gì cho dân tộc này, chỉ suốt ngày bơi móc, ganh tỵ’](/cam-nang/tra-loi-dlv.md#dlv-chê-hải-ngoại-ko-giúp-đc-gì-cho-dân-tộc-này-chỉ-suốt-ngày-bơi-móc-ganh-tỵ) |
+| [DLV: Cho rằng DLV là viết tắt của Dân Lưu Vong (chui thùng container, trốn ở lại South Korea)](/cam-nang/tra-loi-dlv.md) |
 
 ## TOC
 
