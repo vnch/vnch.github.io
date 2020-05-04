@@ -13,12 +13,16 @@
   - **Hãy nhìn cơ thể người**
     - Con người muốn **SUY NGHĨ** tốt thì có tới **2 bán cầu não**
     - Con người muốn **ĂN** tốt thì có tới **2 hàm răng nhai, 2 ruột**
+      - Miệng là kết hợp 2 phần: vòm họng và lưỡi
     - Con người muốn **THỞ** tốt thì có tới **2 lỗ mũi, 2 lá phổi**
     - Con người muốn **NHÌN** tốt thì có tới **2 con mắt**
     - Con người muốn **NGHE** tốt thì có tới **2 lỗ tai**
     - Con người muốn **NUÔI TRẺ** tốt thì có tới **2 ngực**
     - Con người muốn **THẢI** tốt thì có tới **2 lỗ thải**, 1 lỗ thải nước, 1 lỗ thải rắn
     - Tại sao chỉ có 1 tim, 1 gan, 1 bao tử? Vì những bộ phận này chỉ là phần bộ lọc trung chuyển chứ không phải nạp và xử lí chính
+      - Tim được chia thành **4 phần**: tâm nhĩ trái và tâm nhĩ phải ở nửa trên; tâm thất trái và tâm thất phải ở nửa dưới
+      - Gan có thể được chia thành **4 thùy** dựa trên các đặc điểm bề mặt
+      - Bao tử (dạ dày) cũng phải kết hợp với **ruột non** và **ruột già** để hoạt động
 
 ### DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa
   - **Chính VC mới là kẻ tạo bạo lực và chiến tranh nhiều nhất**
