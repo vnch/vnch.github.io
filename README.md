@@ -8,10 +8,11 @@
 | ![saigon-phone-tesla-gigafactory](/public/static/images/saigon-phone-tesla-gigafactory.png) | ... |
 
 ## TÔN GIÁO & LUẬT PHÁP
-- [x] **VC tạo nghiệp ngày 30/4**. Dân tốn tiền **đi máy bay Mỹ, qua S.Korea làm thuê**! Nếu VC không TẠO-NGHIỆP-30/4 thì dân _đi xe honda xuống VNCH làm ăn có phải tiện hơn không_???
-- [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
+- [ ] **VC hãy "quay đầu là bờ"**, đừng đi tới vực thẳm trái ngược lại thế giới văn minh. **VC không có đóng góp gì cho thế giới văn minh**, thì nên biết hối lỗi những điều ác đã làm!
+- [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**, **VC chỉ tạo thiên-đàng-giả**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
 - [x] Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
 - [x] Các nước dân chủ đều có mô hình **BỒI THẨM ĐOÀN**, tất cả dân có kiến thức đều được trao quyền xét xử **trọng án**. Còn xứ VC lúc nào cũng coi dân là ngu dốt nên không có quyền tham gia xét xử
+- [x] **VC tạo nghiệp ngày 30/4**. Dân tốn tiền **đi máy bay Mỹ, qua S.Korea làm thuê**! Nếu VC không TẠO-NGHIỆP-30/4 thì dân _đi xe honda xuống VNCH làm ăn có phải tiện hơn không_???
 
 | Cẩm nang trả lời những **câu hỏi/lý luận** ngớ ngẫn của Dư Luận Viên CS (DLV). Tâm lý **'tự nhục của VC'**  |
 | :------------- |

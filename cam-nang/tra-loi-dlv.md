@@ -21,8 +21,8 @@
     - Con người muốn **THẢI** tốt thì có tới **2 lỗ thải**, 1 lỗ thải nước, 1 lỗ thải rắn
     - Tại sao chỉ có 1 tim, 1 gan, 1 bao tử? Vì những bộ phận này chỉ là phần bộ lọc trung chuyển chứ không phải nạp và xử lí chính
       - Tim được chia thành **4 phần**: tâm nhĩ trái và tâm nhĩ phải ở nửa trên; tâm thất trái và tâm thất phải ở nửa dưới
-      - Gan có thể được chia thành **4 thùy** dựa trên các đặc điểm bề mặt
-      - Bao tử (dạ dày) cũng phải kết hợp với **ruột non** và **ruột già** để hoạt động
+      - Gan được chia thành **4 thùy** dựa trên các đặc điểm bề mặt
+      - Bao tử (dạ dày) kết hợp với **ruột non** và **ruột già** để hoạt động
 
 ### DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa
   - **Chính VC mới là kẻ tạo bạo lực và chiến tranh nhiều nhất**
