@@ -16,6 +16,7 @@
 
 | Cẩm nang trả lời những **câu hỏi/lý luận** ngớ ngẫn của Dư Luận Viên CS (DLV). Tâm lý **'tự nhục của VC'**  |
 | :------------- |
+| Tên DLV nào **chửi bậy** nhiều thì gọi là **CHÉ ĐỎ LIẾM BÙA** vì thiếu kiến thức 'lý luận' |
 | [DLV: 1 đảng tốt hơn nhiều đảng cãi nhau](/cam-nang/tra-loi-dlv.md#dlv-1-đảng-tốt-hơn-nhiều-đảng-cãi-nhau) |
 | [DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-yêu-hòa-bình-ghét-chiến-tranh-hải-ngoại-đừng-về-lật-đổ-nữa) |
 | [DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-tham-nhũng-chỉ-là-số-ít-còn-đảng-và-hệ-thống-vẫn-tốt) |
