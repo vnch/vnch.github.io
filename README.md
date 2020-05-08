@@ -1,3 +1,8 @@
+## THỜI TƯƠNG LAI
+### Việt-Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP?
+- VC **giỏi phá và đánh chiếm**. Giao nhiệm vụ cho **VC đi đánh chiếm lại Hoàng Sa**. Sau đó chiếm tới Taiwan, chiếm tới South Korea và Japan, cuối cùng chiếm hết China thống nhất Á Đông :D
+- VC **giỏi ganh ghét người làm thương mại**. Giao nhiệm vụ cho **VC đi điều tra giặt-tiền, trốn-thuế, gian-lận-thương-mại**... của các tập đoàn tung-cộng
+
 ## YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
 | YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | SAIGON-PHONE HAY SAMSUNG? |
@@ -17,12 +22,14 @@
 | Cẩm nang trả lời những **câu hỏi/lý luận** ngớ ngẫn của Dư Luận Viên CS (DLV). Tâm lý **'tự nhục của VC'**  |
 | :------------- |
 | Tên DLV nào **chửi bậy** nhiều thì gọi là **CHÉ ĐỎ LIẾM BÙA** vì thiếu kiến thức 'lý luận' |
-| [DLV: 1 đảng tốt hơn nhiều đảng cãi nhau](/cam-nang/tra-loi-dlv.md#dlv-1-đảng-tốt-hơn-nhiều-đảng-cãi-nhau) |
+| [DLV: 1 đảng tốt hơn nhiều đảng cãi nhau???](/cam-nang/tra-loi-dlv.md#dlv-1-đảng-tốt-hơn-nhiều-đảng-cãi-nhau) |
 | [DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-yêu-hòa-bình-ghét-chiến-tranh-hải-ngoại-đừng-về-lật-đổ-nữa) |
 | [DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-tham-nhũng-chỉ-là-số-ít-còn-đảng-và-hệ-thống-vẫn-tốt) |
 | [DLV: Dù gì thì VC cũng đã thắng VNCH](/cam-nang/tra-loi-dlv.md#dlv-dù-gì-thì-vc-cũng-đã-thắng-vnch) |
 | [DLV: chê hải ngoại ‘ko giúp đc gì cho dân tộc này, chỉ suốt ngày bơi móc, ganh tỵ’](/cam-nang/tra-loi-dlv.md#dlv-chê-hải-ngoại-ko-giúp-đc-gì-cho-dân-tộc-này-chỉ-suốt-ngày-bơi-móc-ganh-tỵ) |
-| [DLV: Cho rằng DLV là viết tắt của Dân Lưu Vong (chui thùng container, trốn ở lại South Korea)](/cam-nang/tra-loi-dlv.md) |
+| [DLV: Cho rằng DLV là viết tắt của Dân Lưu Vong (làm phụ bếp, cào tuyết trốn ở lại Paris, chui thùng container, trốn ở lại South Korea)](/cam-nang/tra-loi-dlv.md) |
+| [DLV: Hải ngoại không đủ tư cách làm 'chính trị'](/cam-nang/tra-loi-dlv.md) |
+| [DLV: Đệ nhất tiên tri Trần Dần đã khen VC](/cam-nang/tra-loi-dlv.md) |
 
 ## TOC
 
