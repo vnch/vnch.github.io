@@ -1,9 +1,9 @@
-### ACT-PROJECT vụ Hồ Duy Hải: Chụp hình, xịt sơn, live stream... trước NHÀ RIÊNG BỌN QUAN TÒA VC, giống vụ tên Nguyễn Hữu Linh
+## ACT-PROJECT vụ Hồ Duy Hải: Chụp hình, xịt sơn, live stream... trước NHÀ RIÊNG BỌN QUAN TÒA VC, giống vụ tên Nguyễn Hữu Linh
 
-### THỜI TƯƠNG LAI
-#### Việt-Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP?
-- VC **giỏi phá và đánh chiếm**. Giao nhiệm vụ cho **VC đi đánh chiếm lại Hoàng Sa**. Sau đó chiếm tới Taiwan, chiếm tới South Korea và Japan, cuối cùng chiếm hết China thống nhất Á Đông :D
-- VC **giỏi ganh ghét người làm thương mại**. Giao nhiệm vụ cho **VC đi điều tra giặt-tiền, trốn-thuế, gian-lận-thương-mại**... của các tập đoàn tung-cộng
+| THỜI TƯƠNG LAI - Việt-Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP? |
+| :------------- |
+| VC **giỏi phá và đánh chiếm**. Giao nhiệm vụ cho **VC đi đánh chiếm lại Hoàng Sa**. Sau đó chiếm tới Taiwan, chiếm tới South Korea và Japan, cuối cùng chiếm hết China thống nhất Á Đông :D VC vỗ ngực xưng tên **Đế Chế Đông Lào** =) |
+| VC **giỏi ganh ghét người làm thương mại**. Giao nhiệm vụ cho **VC đi điều tra giặt-tiền, trốn-thuế, gian-lận-thương-mại**... của các tập đoàn tung-cộng |
 
 ## YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
