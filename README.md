@@ -2,7 +2,7 @@
 
 | THỜI TƯƠNG LAI - Việt-Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP? |
 | :------------- |
-| VC **giỏi phá và đánh chiếm**. Giao nhiệm vụ cho **VC đi đánh chiếm lại Hoàng Sa**. Sau đó chiếm tới Taiwan, chiếm tới South Korea và Japan, cuối cùng chiếm hết China thống nhất Á Đông :D VC vỗ ngực xưng tên **Đế Chế Đông Lào** =) |
+| VC **giỏi phá và đánh chiếm**. Giao nhiệm vụ cho **VC đi đánh chiếm lại Hoàng Sa**. Sau đó chiếm tới Taiwan, chiếm tới South Korea và Japan, cuối cùng chiếm hết China thống nhất Á Đông :D VC vỗ ngực xưng tên **Đế Chế Đông Lào** 🤣🤣🤣 |
 | VC **giỏi ganh ghét người làm thương mại**. Giao nhiệm vụ cho **VC đi điều tra giặt-tiền, trốn-thuế, gian-lận-thương-mại**... của các tập đoàn tung-cộng |
 
 ## YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
@@ -12,12 +12,12 @@
 | Chấp VC mở 3 khu cho tung-cộng luôn. Cạnh tranh thử coi đặc khu nào được nhiều dân Việt chào đón nhất. | **Nếu VC không bị lừa tạo ra ngày 30/4** |
 | VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?** | Người Việt chọn SAIGON-PHONE hay SAMSUNG? |
 | ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.2.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.2.jpg) |
-| ![saigon-phone-tesla-gigafactory](/public/static/images/saigon-phone-tesla-gigafactory.png) | ... |
+| Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Chỉ có VC bơm vô đầu dân "để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"!!! | ![saigon-phone-tesla-gigafactory](/public/static/images/saigon-phone-tesla-gigafactory.png) |
 
 ## TÔN GIÁO & LUẬT PHÁP
 - [ ] **VC hãy "quay đầu là bờ"**, đừng đi tới vực thẳm trái ngược lại thế giới văn minh. **VC không có đóng góp gì cho thế giới văn minh**, thì nên biết hối lỗi những điều ác đã làm!
 - [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**, **VC chỉ tạo thiên-đàng-giả**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
-- [x] Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
+- [x] Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
 - [x] Các nước dân chủ đều có mô hình **BỒI THẨM ĐOÀN**, tất cả dân có kiến thức đều được trao quyền xét xử **trọng án**. Còn xứ VC lúc nào cũng coi dân là ngu dốt nên không có quyền tham gia xét xử
 - [x] **VC tạo nghiệp ngày 30/4**. Dân tốn tiền **đi máy bay Mỹ, qua S.Korea làm thuê**! Nếu VC không TẠO-NGHIỆP-30/4 thì dân _đi xe honda xuống VNCH làm ăn có phải tiện hơn không_???
 
