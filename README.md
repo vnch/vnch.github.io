@@ -1,4 +1,21 @@
-## ACT-PROJECT vụ Hồ Duy Hải: Chụp hình, xịt sơn, live stream... trước NHÀ RIÊNG BỌN QUAN TÒA VC, giống vụ tên Nguyễn Hữu Linh
+### Cẩm Nang Chống Luận Điệu "Không Được Can Thiệp Nội Bộ" của VC & Tung-Cộng
+
+- Trong một KHU PHỐ, có nhiều gia đình, có một gia đình có cha mẹ đánh đập bạo hành con cái của chính họ. Theo "lý luận của VC & Tung-Cộng", thì các nhà hàng xóm không nên can thiệp chuyện nội bộ của gia đình đang bạo hành trẻ em kia! Đó là chuyện nội bộ của gia đình đó!
+- Trên một TRÁI ĐẤT, nhiều quốc gia xả thải kỹ nghệ cũ làm ô nhiễm bầu khí quyển. Theo "lý luận của VC & Tung-Cộng" thì các quốc gia khác không nên can thiệp chuyện xả thải nội bộ của các quốc gia đang xả thải!!! Đó là chuyện nội bộ của quốc gia đang xả thải! Trái Đất là nội bộ của Vũ Trụ chứ không phải của các quốc gia ý kiến đòi bảo vệ môi trường nhá!
+
+
+### ACT-PROJECT vụ Đồng Tâm, Mỹ Đức, Hà Nội
+
+- [ ] Gây quỹ làm giáo dục thí nghiệm về "hố xăng 2 hình-nộm-VC".
+- [ ] Mời các Youtuber, Facebooker... làm thí nghiệm mô phỏng "hố xăng 2 hình-nộm-VC".
+- [ ] Mời các trường học dạy STEM tạo giáo trình thí nghiệm "hố xăng 2 hình-nộm-VC"
+- [ ] Tổ chức game show "Ai thông minh hơn thì nghiệm 2 hình-nộm-VC trong giếng trời" giống ở nhà cụ Lê Đình Kình, xã Đồng Tâm, Mỹ Đức, Hà Nội.
+
+
+### ACT-PROJECT vụ Hồ Duy Hải 
+
+- Chụp hình, xịt sơn, live stream... trước NHÀ RIÊNG BỌN QUAN TÒA VC, giống vụ tên Nguyễn Hữu Linh
+
 
 | THỜI TƯƠNG LAI - Việt-Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP? |
 | :------------- |
@@ -60,6 +77,7 @@
 
 | (Quá tệ) Việt-Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại** |
 | :------------- |
+| VC năm 2020/.. **KHÔNG** biết tự tạo và in ra **TIỀN POLYMER** |
 | VC năm 2020/01 **KHÔNG** làm được **MÁY TÍNH ĐIỆN TOÁN LƯỢNG TỬ** |
 | VC năm 2020/02 **KHÔNG** làm được **ĐẦU BÚT BI NGUYÊN TỬ** |
 | VC năm 2020/03 **KHÔNG** làm được **TÀU ĐIỆN NGẦM** |
