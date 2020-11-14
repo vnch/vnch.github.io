@@ -1,8 +1,22 @@
-### Cẩm Nang Chống Luận Điệu "Không Được Can Thiệp Nội Bộ" của VC & Tung-Cộng
+# PROJECT YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
+### Cẩm Nang Chống Luận Điệu "Không Được Can Thiệp Nội Bộ" của Việt-Cộng & Tung-Cộng
+
+- 99% các vụ bạo hành đánh trẻ em, giáo viên đánh học sinh, đánh vợ đánh con... đều được phanh phui nhờ đưa video lên mạng internet Facebook & Youtube... Nhờ đưa lên internet thì người bên ngoài mới biết được sự việc bạo hành của bọn Việt-Cộng
+- Việt-Cộng thực hiện chặn mạng, xóa mạng internet Facebook & Youtube, thì Việt-Cộng chính là kẻ trùm bạo hành với dân trong nước. Dân Việt bắt buộc phải nhờ bên ngoài can thiệp trợ giúp, chứ không thể nào tự cứu được!
 - Trong một KHU PHỐ, có nhiều gia đình, có một gia đình có cha mẹ đánh đập bạo hành con cái của chính họ. Theo "lý luận của VC & Tung-Cộng", thì các nhà hàng xóm không nên can thiệp chuyện nội bộ của gia đình đang bạo hành trẻ em kia! Đó là chuyện nội bộ của gia đình đó!
 - Trên một TRÁI ĐẤT, nhiều quốc gia xả thải kỹ nghệ cũ làm ô nhiễm bầu khí quyển. Theo "lý luận của VC & Tung-Cộng" thì các quốc gia khác không nên can thiệp chuyện xả thải nội bộ của các quốc gia đang xả thải!!! Đó là chuyện nội bộ của quốc gia đang xả thải! Trái Đất là nội bộ của Vũ Trụ chứ không phải của các quốc gia ý kiến đòi bảo vệ môi trường nhá!
 
+### Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
+
+- "Chị vợ" muốn chống lại "tên chồng bạo hành" trong gia đình của họ, thì cũng phải nhờ tới bên ngoài can thiệp. Khó có thể chờ đợi cho tên chồng bạo hành thay đổi khi quyền nó nắm trong tay! Chấp chị vợ nó kêu gào, khóc lóc, van xin... thì hắn cũng không bao giờ thay đổi!
+- 2 vợ chồng sống trong 1 gia đình, nam-nữ (đực-cái) đặc tính sinh học là không giống nhau. Việt-Cộng thì không muốn sống chung với tư tưởng khác, luôn tìm cách tiêu diệt tư tưởng khác với chúng! Việt-Cộng chính tên chồng bạo hành luôn muốn áp đặt lên chị vợ, bắt chị vợ phải răm rắp nghe theo.
+- Bọn cầm quyền ở VN hiện nay liệu có phải là dân Việt, hay toàn là Tung-Cộng đội lốt và bị mua chuộc? Bọn Việt-Cộng này đã biến thành "tên chồng bạo hành", rất gian ác, rất hám danh, rất hám lợi và rất hám quyền. Dân là "chị vợ" ở thế yếu mà không có trợ giúp ở ngoài thì muốn đời không làm gì được lũ Việt-Cộng!
+
+### Nghiệp của Việt-Cộng 2020-2030
+
+- [x] Việt-Cộng bắt nạt dân thì bị đầu gấu Tung-Cộng nó bắt nạt lại, không dám ho hé gì.
+- [x] Việt-Cộng muốn đi chơi với bạn Mỹ, nhưng bị đầu gấu Tung-Cộng nó giằng mặt, nó khống chế, nó bạo hành, nó giam cầm... không có đi đâu chơi hết.
 
 ### ACT-PROJECT vụ Đồng Tâm, Mỹ Đức, Hà Nội
 
@@ -16,13 +30,14 @@
 
 - Chụp hình, xịt sơn, live stream... trước NHÀ RIÊNG BỌN QUAN TÒA VC, giống vụ tên Nguyễn Hữu Linh
 
+### THỜI TƯƠNG LAI - Việt-Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP?
 
 | THỜI TƯƠNG LAI - Việt-Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP? |
 | :------------- |
 | VC **giỏi phá và đánh chiếm**. Giao nhiệm vụ cho **VC đi đánh chiếm lại Hoàng Sa**. Sau đó chiếm tới Taiwan, chiếm tới South Korea và Japan, cuối cùng chiếm hết China thống nhất Á Đông :D VC vỗ ngực xưng tên **Đế Chế Đông Lào** 🤣🤣🤣 |
 | VC **giỏi ganh ghét người làm thương mại**. Giao nhiệm vụ cho **VC đi điều tra giặt-tiền, trốn-thuế, gian-lận-thương-mại**... của các tập đoàn tung-cộng |
 
-## YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
+### YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
 | YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | SAIGON-PHONE HAY SAMSUNG? |
 | :---------------------------------------- | :------------------------ |
@@ -31,7 +46,7 @@
 | ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.2.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.2.jpg) |
 | Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Chỉ có VC bơm vô đầu dân "để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"!!! | ![saigon-phone-tesla-gigafactory](/public/static/images/saigon-phone-tesla-gigafactory.png) |
 
-## TÔN GIÁO & LUẬT PHÁP
+### TÔN GIÁO & LUẬT PHÁP
 - [ ] **VC hãy "quay đầu là bờ"**, đừng đi tới vực thẳm trái ngược lại thế giới văn minh. **VC không có đóng góp gì cho thế giới văn minh**, thì nên biết hối lỗi những điều ác đã làm!
 - [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**, **VC chỉ tạo thiên-đàng-giả**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
 - [x] Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
