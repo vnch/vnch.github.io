@@ -2,7 +2,7 @@
 
 ### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
 
-[x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
+- [x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
 
 ### Cẩm Nang Chống Luận Điệu "Không Được Can Thiệp Nội Bộ" của Việt-Cộng & Tung-Cộng
 
