@@ -4,6 +4,12 @@
 
 - [x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
 
+### Việt Cộng đã gài bẫy cải cách SGK 2020 thế nào
+
+- Cố tình chọn bộ sách phức tạp nhất cho học sinh lớp 1 trong năm 2020.
+- Tung tin tôn vinh sách 30 năm trước của VC, để bôi xấu sách 2020 là chủ nghĩa dân túy, cải cách là không tốt, sau này đừng có đòi cải cách nữa.
+- Mục đích cuối là bơm vô đầu dân Việt không nên thay đổi chế độ của VC. Gián tiếp làm các em trẻ từ lớp 1 đã bị dọa sợ hãi khi học sách lớp 1 cải cách năm 2020.
+
 ### Cẩm Nang Chống Luận Điệu "Không Được Can Thiệp Nội Bộ" của Việt-Cộng & Tung-Cộng
 
 - 99% các vụ bạo hành đánh trẻ em, giáo viên đánh học sinh, đánh vợ đánh con... đều được phanh phui nhờ đưa video lên mạng internet Facebook & Youtube... Nhờ đưa lên internet thì người bên ngoài mới biết được sự việc bạo hành của bọn Việt-Cộng
