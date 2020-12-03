@@ -1,5 +1,9 @@
 # PROJECT YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
+### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
+
+[x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
+
 ### Cẩm Nang Chống Luận Điệu "Không Được Can Thiệp Nội Bộ" của Việt-Cộng & Tung-Cộng
 
 - 99% các vụ bạo hành đánh trẻ em, giáo viên đánh học sinh, đánh vợ đánh con... đều được phanh phui nhờ đưa video lên mạng internet Facebook & Youtube... Nhờ đưa lên internet thì người bên ngoài mới biết được sự việc bạo hành của bọn Việt-Cộng
