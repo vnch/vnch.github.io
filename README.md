@@ -1,10 +1,24 @@
 # PROJECT YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
+### [JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG](/JOIN-US.md)
+
+#### Contact (Liên Lạc)
+
+1. Email: quoccuong (at) protonmail.com
+2. Chat: [Matrix](https://matrix.to/#/@quoccuong:matrix.org)
+2. Reddit: [/r/newvnch](https://www.reddit.com/r/newvnch/), [The New Việt Nam Cộng Hòa](https://www.reddit.com/r/newvnch/)
+
+### QUY ƯỚC ĐỒNG THUẬN
+
+1. Chỉ những ai đã LIVE STREAM thì mới được ra ứng cử khi VN có bầu cử tự do.
+2. Quy ước này để chống bọn CS cài người ra ứng cử: "mẹ hát con khen", "vừa đá bóng vừa thổi còi".
+- (Nghe đồn năm 2030 "CS ma cô toàn thế giới" sẽ buộc phải có bầu cử tự do)
+
 ### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
 
 - [x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
 
-### Việt Cộng đã gài bẫy cải cách SGK 2020 thế nào
+### Việt Cộng đã gài bẫy cải cách SGK 2020 thế nào?
 
 - Cố tình chọn bộ sách phức tạp nhất cho học sinh lớp 1 trong năm 2020.
 - Tung tin tôn vinh sách 30 năm trước của VC, để bôi xấu sách 2020 là chủ nghĩa dân túy, cải cách là không tốt, sau này đừng có đòi cải cách nữa.
