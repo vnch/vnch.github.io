@@ -14,6 +14,13 @@
 2. Quy ước này để chống bọn CS cài người ra ứng cử: "mẹ hát con khen", "vừa đá bóng vừa thổi còi".
 - (Nghe đồn năm 2030 "CS ma cô toàn thế giới" sẽ buộc phải có bầu cử tự do)
 
+### News
+
+- Nữ sinh lớp 10 tự tử ngay tại trường
+	- Cướp Sản dạy người 0-TRI-0-THỨC phải tống-tiền càng nhiều càng tốt
+	- Giáo viên xứ Cướp Sản giấu bài, ém đề... để TỐNG-TIỀN học sinh phải đi học thêm!
+	- Tuổi trẻ VN phải đi du học xa xứ thay vì chỉ đi tới Saigon là tiếp cận nền giáo dục hàng đầu, nếu không có VC xảo trá & gian tà đã tạo ra ngày 30/4.
+
 ### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
 
 - [x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
