@@ -8,7 +8,7 @@
 2. Chat: [Matrix @quoccuong:matrix.org](https://matrix.to/#/@quoccuong:matrix.org) | [Matrix Room #vietnam:matrix.org](https://matrix.to/#/!sKBidzLKqCbfOspapM:matrix.org)
 2. Reddit: [/r/newvnch](https://www.reddit.com/r/newvnch/), [The New Việt Nam Cộng Hòa](https://www.reddit.com/r/newvnch/)
 
-### QUY ƯỚC ĐỒNG THUẬN
+### GIAO KÈO ĐỒNG THUẬN
 
 1. Chỉ những ai đã LIVE STREAM thì mới được ra ứng cử khi VN có bầu cử tự do.
 2. Quy ước này để chống bọn CS cài người ra ứng cử: "mẹ hát con khen", "vừa đá bóng vừa thổi còi".
