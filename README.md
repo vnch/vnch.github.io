@@ -5,7 +5,7 @@
 #### Contact (Liên Lạc)
 
 1. Email: quoccuong (at) protonmail.com
-2. Chat: [Matrix](https://matrix.to/#/@quoccuong:matrix.org) [Room #vietnam:matrix.org](https://matrix.to/#/!sKBidzLKqCbfOspapM:matrix.org)
+2. Chat: [Matrix @quoccuong:matrix.org](https://matrix.to/#/@quoccuong:matrix.org) | [Matrix Room #vietnam:matrix.org](https://matrix.to/#/!sKBidzLKqCbfOspapM:matrix.org)
 2. Reddit: [/r/newvnch](https://www.reddit.com/r/newvnch/), [The New Việt Nam Cộng Hòa](https://www.reddit.com/r/newvnch/)
 
 ### QUY ƯỚC ĐỒNG THUẬN
