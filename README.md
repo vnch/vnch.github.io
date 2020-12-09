@@ -16,10 +16,14 @@
 
 ### News
 
+- Tài xế Grab chỉ dám biểu tình chống Grab mà không dám chống chế độ VC?
+  - Grab muốn hoạt động và lớn mạnh ở xứ VC thì đều phải hối lộ qua trung gian
+  - Đây chỉ là chiêu trò gây sức ép để tống-tiền hãng Grab
+  - Khi tiền đã ăn chia xong, thì các tài xế kia sẽ bị đập luật rừng của bọn VC với tội danh tụ tập trái phép gây mất trật tự!
 - Nữ sinh lớp 10 tự tử ngay tại trường
-	- Cướp Sản dạy người 0-TRI-0-THỨC phải tống-tiền càng nhiều càng tốt
-	- Giáo viên xứ Cướp Sản giấu bài, ém đề... để TỐNG-TIỀN học sinh phải đi học thêm!
-	- Tuổi trẻ VN phải đi du học xa xứ thay vì chỉ đi tới Saigon là tiếp cận nền giáo dục hàng đầu, nếu không có VC xảo trá & gian tà đã tạo ra ngày 30/4.
+  - Cướp Sản dạy người 0-TRI-0-THỨC phải tống-tiền càng nhiều càng tốt
+  - Giáo viên xứ Cướp Sản giấu bài, ém đề... để TỐNG-TIỀN học sinh phải đi học thêm!
+  - Tuổi trẻ VN phải đi du học xa xứ thay vì chỉ đi tới Saigon là tiếp cận nền giáo dục hàng đầu, nếu không có VC xảo trá & gian tà đã tạo ra ngày 30/4.
 
 ### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
 
