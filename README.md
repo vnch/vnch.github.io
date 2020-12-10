@@ -2,6 +2,10 @@
 
 ### [JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG](/JOIN-US.md)
 
+1. [KHÔNG YÊU CẦU DANH TÁNH, để tránh bị gài bẫy, bị làm mồi cho VC lập công](/JOIN-US.md#khong-yeu-cau-danh-tanh)
+2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC!](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
+3. [ĐẤU TRANH THẬT SỰ THÌ PHẢI KHÔNG ĐỂ BỊ BẮT, KHÔNG CHO BỌN VC LẬP CÔNG, KHÔNG CHO VC ĐEM TÙ NHÂN RA TRAO ĐỔI HIỆP ĐỊNH THƯƠNG MẠI!](/JOIN-US.md#khong-de-bon-vc-lap-cong-trao-doi-tu-nhan)
+
 #### Contact (Liên Lạc)
 
 1. Email: quoccuong (at) protonmail.com
