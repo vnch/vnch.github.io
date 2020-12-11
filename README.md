@@ -1,10 +1,17 @@
 # PROJECT YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
-### [JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG](/JOIN-US.md)
+## [JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG](/JOIN-US.md)
 
 1. [KHÔNG YÊU CẦU DANH TÁNH, để tránh bị gài bẫy, bị làm mồi cho VC lập công](/JOIN-US.md#khong-yeu-cau-danh-tanh)
 2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC!](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
 3. [ĐẤU TRANH THẬT SỰ THÌ PHẢI KHÔNG ĐỂ BỊ BẮT, KHÔNG CHO BỌN VC LẬP CÔNG, KHÔNG CHO VC ĐEM TÙ NHÂN RA TRAO ĐỔI HIỆP ĐỊNH THƯƠNG MẠI!](/JOIN-US.md#khong-de-bon-vc-lap-cong-trao-doi-tu-nhan)
+
+## OPEN SOURCE LÀ CÔNG KHAI & MINH BẠCH, KHÔNG PHẢI LÀ CỘNG-SẢN!
+
+- Giới IT ở xứ VC đã vơ đũa open source giống CS chúng nó. HOÀN TOÀN SAI!
+- Chỉ xứ VC mới có cái trò lấy source của người khác, rồi xóa tên tác giả để thể hiện, để lập công.
+- Open source là thể hiện sự VĂN MINH CÔNG KHAI & MINH BẠCH, chứ không phải cái trò trộm cắp, cướp công như bọn VC CS lấy làm của công, rồi đá tác giả sống nghèo đói.
+- Người làm open source coi đó như là viết tiểu thuyết. Chỉ có bè lũ VC & CS mới có trò chép tiểu thuyết của người khác rồi xóa tên tác giả để ghi tên chúng nó thay thế!
 
 ### HỘI CHỨNG "HẢI NGOẠI KHÔNG MUỐN LẬT ĐỔ VC"?
 
