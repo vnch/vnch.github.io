@@ -12,6 +12,12 @@
 - Có phải để VC tồn tại mới có bài vở, đưa tin ở các đài BBC, VOA, RFA...
 - Nhờ VC tồn tại mới có các Youtuber đưa tin, live streaming mỗi ngày?
 
+### NHỮNG TRÒ GÂY CHIA RẼ CÔ LẬP CỦA BỌN THÚ HOANG VIỆT-CỘNG
+
+- Bắt bớ dân chủ kiểu ngẫu hứng, người thì bắt ngay, người thì để lâu không bao giờ bắt. Mục đích là gây chia rẽ nghi ngờ lẫn nhau trong giới đấu tranh cho dân chủ, suốt ngày đi xét người nào là VC nằm vùng, mà quên mất phải lật đổ VC trước đã!
+  - Giải quyết: Dân chủ phải nghĩ ra cách làm dự án mà bọn VC có biết cũng không có cớ để bắt.
+  - Giải quyết: Hạn chế cách làm xưa cũ kiểu hội kín thiên địa hội... CS rất giỏi cài cắm hai mang. Không còn thông tin mật thì VC cũng hết cái để lập công, chúng sẽ rối loạn mục tiêu, không biết phương hướng để phá!
+  
 #### Contact (Liên Lạc)
 
 1. Email: quoccuong (at) protonmail.com
