@@ -6,6 +6,12 @@
 2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC!](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
 3. [ĐẤU TRANH THẬT SỰ THÌ PHẢI KHÔNG ĐỂ BỊ BẮT, KHÔNG CHO BỌN VC LẬP CÔNG, KHÔNG CHO VC ĐEM TÙ NHÂN RA TRAO ĐỔI HIỆP ĐỊNH THƯƠNG MẠI!](/JOIN-US.md#khong-de-bon-vc-lap-cong-trao-doi-tu-nhan)
 
+### HỘI CHỨNG "HẢI NGOẠI KHÔNG MUỐN LẬT ĐỔ VC"?
+
+- Tại sao 45 năm không lật được bọn VC? Có phải là do chưa làm hết mình?
+- Có phải để VC tồn tại mới có bài vở, đưa tin ở các đài BBC, VOA, RFA...
+- Nhờ VC tồn tại mới có các Youtuber đưa tin, live streaming mỗi ngày?
+
 #### Contact (Liên Lạc)
 
 1. Email: quoccuong (at) protonmail.com
