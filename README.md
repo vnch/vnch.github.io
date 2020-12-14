@@ -22,9 +22,18 @@
 ### NHỮNG TRÒ GÂY CHIA RẼ CÔ LẬP CỦA BỌN THÚ HOANG VIỆT-CỘNG
 
 - Bắt bớ dân chủ kiểu ngẫu hứng, người thì bắt ngay, người thì để lâu không bao giờ bắt. Mục đích là gây chia rẽ nghi ngờ lẫn nhau trong giới đấu tranh cho dân chủ, suốt ngày đi xét người nào là VC nằm vùng, mà quên mất phải lật đổ VC trước đã!
+  - Giải quyết: **MÔ HÌNH KHÔNG CHO VIỆT-CỘNG LẬP CÔNG**
   - Giải quyết: Dân chủ phải nghĩ ra cách làm dự án mà bọn VC có biết cũng không có cớ để bắt.
   - Giải quyết: Hạn chế cách làm xưa cũ kiểu hội kín thiên địa hội... CS rất giỏi cài cắm hai mang. Không còn thông tin mật thì VC cũng hết cái để lập công, chúng sẽ rối loạn mục tiêu, không biết phương hướng để phá!
-  
+
+### MÔ HÌNH KHÔNG CHO VIỆT-CỘNG LẬP CÔNG
+
+- Dự án lật đổ Việt-cộng sẽ là mô hình Open Source, chỉ giữ bí mật thông-tin-cá-nhân để tránh bị gài bẫy!
+- Khi không còn cá-nhân để bọn Việt-cộng bắt giữ, gài bẫy, giam cầm, đem trao đổi tù nhân lương tâm... thì chúng sẽ hết cái để lập công tráo trở gian manh xảo trá!
+  - Các dự án IT trước kia quý giá nhất là Source Code.
+  - Khi Open Source nhiều, thì tài sản quý nhất sẽ là dữ liệu thông tin cá nhân (Personal Information).
+
+
 #### Contact (Liên Lạc)
 
 1. Email: quoccuong (at) protonmail.com
