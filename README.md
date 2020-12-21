@@ -48,10 +48,20 @@
 
 ### News
 
+- "Phản dame" Duy Nguyễn
+  - Duy Nguyễn là kẻ cơ hội & lươn lẹo, đi học nghề IT nhưng giờ đã nhảy qua Gymer và giàu lên thì lại nhờ làm cò đất.
+  - Duy Nguyễn hay khoe tiền bạc, nhà cửa... và cho đó mới là có giá trị, có văn minh.
+  - Duy Nguyễn đang "dame" hải ngoại, nhưng không khác gì "chửi khéo" ông Hồ Chí Minh:
+    - Ông HCM nghèo rớt mồng tơi, cơ thể gầy gò, ốm yếu không có cơ bắp bằng Duy Nguyễn.
+    - Ông HCM mang danh đi "du học", nhưng về nước lại sống trong hang Pác Pó, không có lấy "4 cái nhà" (4 cái làng), không có cái "xe 7 tỷ"... 
+    - "Nhục chưa" là câu nói cửa miệng của Duy Nguyễn trong các videos. Ông HCM có nhục chưa???
+    - Nếu ông Hồ Chí Minh sống ở thời đại này, thì chắc chắn sẽ bị Duy Nguyễn chửi SML trên các live stream của anh ta vì không giàu bằng anh ta!
+
 - Tài xế Grab chỉ dám biểu tình chống Grab mà không dám chống chế độ VC?
   - Grab muốn hoạt động và lớn mạnh ở xứ VC thì đều phải hối lộ qua trung gian
   - Đây chỉ là chiêu trò gây sức ép để tống-tiền hãng Grab
   - Khi tiền đã ăn chia xong, thì các tài xế kia sẽ bị đập luật rừng của bọn VC với tội danh tụ tập trái phép gây mất trật tự!
+
 - Nữ sinh lớp 10 tự tử ngay tại trường
   - Cướp Sản dạy người 0-TRI-0-THỨC phải tống-tiền càng nhiều càng tốt
   - Giáo viên xứ Cướp Sản giấu bài, ém đề... để TỐNG-TIỀN học sinh phải đi học thêm!
