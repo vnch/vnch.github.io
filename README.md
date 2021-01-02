@@ -11,13 +11,13 @@
 - Giới IT ở xứ VC đã vơ đũa open source giống CS chúng nó. HOÀN TOÀN SAI!
 - Chỉ xứ VC mới có cái trò lấy source của người khác, rồi xóa tên tác giả để thể hiện, để lập công.
 - Open source là thể hiện sự VĂN MINH CÔNG KHAI & MINH BẠCH, chứ không phải cái trò trộm cắp, cướp công như bọn VC CS lấy làm của công, rồi đá tác giả sống nghèo đói.
-- Người làm open source coi đó như là viết tiểu thuyết. Chỉ có bè lũ VC & CS mới có trò chép tiểu thuyết của người khác rồi xóa tên tác giả để ghi tên chúng nó thay thế!
+- Người làm open source coi đó như là viết tiểu-thuyết/tác-phẩm-nghệ-thuật. Chỉ có bè lũ VC & CS mới có trò chép tiểu-thuyết/tác-phẩm-nghệ-thuật của người khác rồi xóa tên tác giả để ghi tên chúng nó thay thế!
 
 ### HỘI CHỨNG "HẢI NGOẠI KHÔNG MUỐN LẬT ĐỔ VC"?
 
 - Tại sao 45 năm không lật được bọn VC? Có phải là do chưa làm hết mình?
 - Có phải để VC tồn tại mới có bài vở, đưa tin ở các đài BBC, VOA, RFA...
-- Nhờ VC tồn tại mới có các Youtuber đưa tin, live streaming mỗi ngày?
+- Nhờ VC tồn tại mới có các Facebooker, Youtuber đưa tin live streaming mỗi ngày?
 
 ### NHỮNG TRÒ GÂY CHIA RẼ CÔ LẬP CỦA BỌN THÚ HOANG VIỆT-CỘNG
 
@@ -37,8 +37,9 @@
 #### Contact (Liên Lạc)
 
 1. Email: quoccuong (at) protonmail.com
+2. Chat: [gitter.im/vnch](https://gitter.im/vnch/community?utm_source=link) [![Gitter](https://badges.gitter.im/vnch/community.svg)](https://gitter.im/vnch/community?utm_source=badge)
 2. Chat: [Matrix @quoccuong:matrix.org](https://matrix.to/#/@quoccuong:matrix.org) | [Matrix Room #vietnam:matrix.org](https://matrix.to/#/!sKBidzLKqCbfOspapM:matrix.org)
-2. Reddit: [/r/newvnch](https://www.reddit.com/r/newvnch/), [The New Việt Nam Cộng Hòa](https://www.reddit.com/r/newvnch/)
+3. Reddit: [/r/newvnch](https://www.reddit.com/r/newvnch/), [The New Việt Nam Cộng Hòa](https://www.reddit.com/r/newvnch/)
 
 ### GIAO KÈO ĐỒNG THUẬN
 
