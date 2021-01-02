@@ -37,7 +37,8 @@
 #### Contact (Liên Lạc)
 
 1. Email: quoccuong (at) protonmail.com
-2. Chat: [gitter.im/vnch](https://gitter.im/vnch/community?utm_source=link) [![Gitter](https://badges.gitter.im/vnch/community.svg)](https://gitter.im/vnch/community?utm_source=badge)
+2. Chat VNCH [gitter.im/vnch](https://gitter.im/vnch/community?utm_source=link) [![Gitter](https://badges.gitter.im/vnch/community.svg)](https://gitter.im/vnch/community?utm_source=badge)
+2. Chat Saigon-Phone [gitter.im/saigon-phone](https://gitter.im/saigon-phone/community?utm_source=link)
 2. Chat: [Matrix @quoccuong:matrix.org](https://matrix.to/#/@quoccuong:matrix.org) | [Matrix Room #vietnam:matrix.org](https://matrix.to/#/!sKBidzLKqCbfOspapM:matrix.org)
 3. Reddit: [/r/newvnch](https://www.reddit.com/r/newvnch/), [The New Việt Nam Cộng Hòa](https://www.reddit.com/r/newvnch/)
 
