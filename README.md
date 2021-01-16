@@ -50,6 +50,10 @@
 
 ### News
 
+- VC khoe chạy chức tiền tỉ mỗi lần đại hội
+  - Gài hải ngoại đưa tin chạy chức, chạy đại biểu quốc hội tiền tỉ, triệu đô
+  - Từ đó VC ngầm thể hiện khoe rằng làm quan chức ở xứ VC rất có giá, phải tốn tiền nhiều mới có chức quyền!
+
 - "Phản dame" Duy Nguyễn
   - Duy Nguyễn là kẻ cơ hội & lươn lẹo, đi học nghề IT nhưng giờ đã nhảy qua Gymer và giàu lên thì lại nhờ làm cò đất.
   - Duy Nguyễn hay khoe tiền bạc, nhà cửa... và cho đó mới là có giá trị, có văn minh.
