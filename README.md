@@ -48,6 +48,27 @@
 2. Quy ước này để chống bọn CS cài người ra ứng cử: "mẹ hát con khen", "vừa đá bóng vừa thổi còi".
 - (Nghe đồn năm 2030 "CS ma cô toàn thế giới" sẽ buộc phải có bầu cử tự do)
 
+### Review Phim
+
+- Phim 'The Platform' (Hố Sâu Đói Khát) trên Netflix bị bọn ché-đỏ-liếm-bùa nói ngược, chúng nó quên luôn chính platform mới là thủ phạm chính
+  - Phim rõ ràng nói về một platform được tạo ra giống hệt kiểu BAO-CẤP-CỘNG-SẢN.
+  - Chính cái platform cố tình hạn chế nguồn cung, hạn chế tư duy sáng tạo, hạn chế đủ thứ.... Từ những hạn chế dốt nát đó mới khơi ra cái ác của con người. Giống hệt kiểu quản lý ngu dốt kiểu cộng sản thời bao cấp, làm cho thiếu thốn đủ thứ. Tới thế kỷ 21 mà VC vẫn thiếu luôn tự do ngôn luận, thiếu luôn tự do ứng cử tranh cử... dù chúng nó luôn ra rả cái mồm là nước dân chủ, nước xã hội chủ nghĩa!
+  - Nhóm nhân vật chính trong phim là đề cao chủ nghĩa dân túy. Họ đứng lên chống lại cái platform BAO-CẤP-CỘNG-SẢN tào lao dốt nát. Chống lại cái nhà tù khổ sai không có nhân quyền, không cho tù nhân ý kiến, bày tỏ nguyện vọng... không khác gì bọn VC ở thế kỷ 21!
+  - Ché-đỏ-liếm-bùa lại nghĩ ngược, cho rằng tù-nhân (dân-chúng) là ngu dốt mới tranh giành thức ăn. Ché-đỏ lúc nào cũng muốn để cao sự lãnh đạo của đảng chúng nó, dân phải ít đòi hỏi để đảm bảo bình an, dù có chết-đói cũng phải ràng giữ chế độ. Ché-đỏ cũng quên mất Karl Marx đã nói phải tích lũy tư bản (lương thực đủ đầy) thì mới có cộng sản, chứ không phải kiểu cai trị thằng chột làm vua xứ mù, thằng mập làm vua xứ gầy!
+
+- Phim 'Money Heist' (Phi Vụ Triệu Đô) trên Netflix
+  - Ám chỉ sự phản kháng lại bọn tà-quyền in tiền vô tội vạ
+  - Bọn VC cố tình thao túng tiền tệ, làm mất giá đồng-tiền-in-hình-lãnh-tụ-của-VC. Ché-đỏ đâu có tôn kính gì lãnh tụ in trên tờ tiền của chúng nó, chúng không biết xấu hổ khi làm 'đồng-tiền-in-hình-lãnh-tụ-VC' bị mất giá đứng bét thế giới!
+  - Đúng ra phim này phải được làm ra ở xứ Việt-Cộng vì đồng tiền VC đang có nhiều số 0 mất giá nhất thế giới!
+
+- Phim Vivarium (2019)
+  - Chỉ rõ sự xảo trá của bọn CS (chim tu hú). VC năm 2020 nhận tiền viện trợ y tế của Hoa Kỳ hơn 100 triệu USD, nhưng lại cấu kết với tung-cộng để che dấu dịch, đánh tráo nguồn gốc dịch, vẽ ra những dấu vết tào lao: dịch tồn tại trên hàng hải sản nhập khẩu từ phương Tây!
+  - Xứ Việt-Cộng & Tung-Cộng là chuyên gia thổi giá bất động sản. Bọn này đi tới đâu là phá thị trường tới đó, làm cho dân bản địa khó mua nhà hơn
+  - Ché đỏ thì dù đi du học thì cũng không văn minh hơn, mà sẽ giống chim tu hú, học xong rồi cũng cung phụng bọn tà quyền độc đảng độc tài!
+
+- Phim 'Matrix' (Ma trận)
+  - Nói về cái thiên đàng giả do bọn cai trị tạo ra, giống hệt bọn CS mị dân bằng sự giả tạo
+
 ### News
 
 - VC khoe chạy chức tiền tỉ mỗi lần đại hội
