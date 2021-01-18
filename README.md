@@ -6,6 +6,18 @@
 2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC!](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
 3. [ĐẤU TRANH THẬT SỰ THÌ PHẢI KHÔNG ĐỂ BỊ BẮT, KHÔNG CHO BỌN VC LẬP CÔNG, KHÔNG CHO VC ĐEM TÙ NHÂN RA TRAO ĐỔI HIỆP ĐỊNH THƯƠNG MẠI!](/JOIN-US.md#khong-de-bon-vc-lap-cong-trao-doi-tu-nhan)
 
+## KHỞI KIỆN VIỆT CỘNG
+
+- [ ] Youtuber Dưa Leo (Nguyễn Phúc Gia Huy) đang khởi kiện bọn báo-nhân-dân của bọn VC
+  - **Dưa Leo Reaction - bài báo nhân dân VU KHỐNG XÚC PHẠM** [https://m.youtube.com/watch?v=GX9th14KV7I](https://m.youtube.com/watch?v=GX9th14KV7I)
+  - Email: dualeone (at) gmail.com
+  - Email: dualeoteam (at) gmail.com
+  - Donate: https://www.patreon.com/dualeone
+  - Momo: 0932539510, Nguyễn Lê Minh Ngọc
+  - VCB: 0441003723804, Nguyễn Lê Minh Ngọc
+- [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
+- [x] Doanh nhân **Trịnh Vĩnh Bình (Vua chả giỏ) đã thắng kiện bọn VC**. VC là chuyên đi phá hoại kinh doanh sản xuất!
+
 ## OPEN SOURCE LÀ CÔNG KHAI & MINH BẠCH, KHÔNG PHẢI LÀ CỘNG-SẢN!
 
 - Giới IT ở xứ VC đã vơ đũa open source giống CS chúng nó. HOÀN TOÀN SAI!
@@ -229,9 +241,5 @@
 
 - [ ] Người Việt chọn Samsung hay SaigonPhone? Nếu ViệtCộng không bị lừa tạo ra ngày 30/4!
 
-## KHỞI KIỆN VIỆT CỘNG
-
-- [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
-- [x] Doanh nhân **Trịnh Vĩnh Bình (Vua chả giỏ) đã thắng kiện bọn VC**. VC là chuyên đi phá hoại kinh doanh sản xuất!
 
 <a href="https://info.flagcounter.com/J7hO"><img src="https://s01.flagcounter.com/count2/J7hO/bg_FFFFFF/txt_000000/border_CCCCCC/columns_2/maxflags_10/viewers_0/labels_1/pageviews_0/flags_0/percent_1/" border="0"></a>
