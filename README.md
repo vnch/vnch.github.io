@@ -31,6 +31,10 @@
 - Có phải để VC tồn tại mới có bài vở, đưa tin ở các đài BBC, VOA, RFA...
 - Nhờ VC tồn tại mới có các Facebooker, Youtuber đưa tin live streaming mỗi ngày?
 
+#### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
+
+- [x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
+
 ### NHỮNG TRÒ GÂY CHIA RẼ CÔ LẬP CỦA BỌN THÚ HOANG VIỆT-CỘNG
 
 - Bắt bớ dân chủ kiểu ngẫu hứng, người thì bắt ngay, người thì để lâu không bao giờ bắt. Mục đích là gây chia rẽ nghi ngờ lẫn nhau trong giới đấu tranh cho dân chủ, suốt ngày đi xét người nào là VC nằm vùng, mà quên mất phải lật đổ VC trước đã!
@@ -106,15 +110,17 @@
   - Giáo viên xứ Cướp Sản giấu bài, ém đề... để TỐNG-TIỀN học sinh phải đi học thêm!
   - Tuổi trẻ VN phải đi du học xa xứ thay vì chỉ đi tới Saigon là tiếp cận nền giáo dục hàng đầu, nếu không có VC xảo trá & gian tà đã tạo ra ngày 30/4.
 
-### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
-
-- [x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
-
 ### Việt Cộng đã gài bẫy cải cách SGK 2020 thế nào?
 
 - Cố tình chọn bộ sách phức tạp nhất cho học sinh lớp 1 trong năm 2020.
 - Tung tin tôn vinh sách 30 năm trước của VC, để bôi xấu sách 2020 là chủ nghĩa dân túy, cải cách là không tốt, sau này đừng có đòi cải cách nữa.
 - Mục đích cuối là bơm vô đầu dân Việt không nên thay đổi chế độ của VC. Gián tiếp làm các em trẻ từ lớp 1 đã bị dọa sợ hãi khi học sách lớp 1 cải cách năm 2020.
+
+### Cẩm nang chống "ní nuận" chỉ đưa tin tích-cực
+
+- Đài truyền hình Ché Đỏ Liếm Bùa khoái tin tích cực, thì hãy:
+  - Đừng đưa tin tiêu-cực về bão lũ, sạc lỡ ở miền Trung. Bão lũ là chuyện của ông trời, chứ xứ thiên đường thì làm gì có bão lũ.
+  - Đừng đưa tin tiêu-cực về ô nhiễm rác thải, rác nhựa... ở các xứ khác. Xứ VC thì đâu có rác thải hay ô nhiễm gì đâu, Formosa vẫn sạch sẽ lắm)
 
 ### Cẩm Nang Chống Luận Điệu "Không Được Can Thiệp Nội Bộ" của Việt-Cộng & Tung-Cộng
 
