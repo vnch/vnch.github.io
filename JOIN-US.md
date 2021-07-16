@@ -1,3 +1,9 @@
+## DRONE VNCH
+
+![Dự án drone để troll bọn ché-đỏ liếm-bùa (búa liềm)](/public/static/images/drone-VNCH.jpg)
+
+- Dự án drone để troll bọn ché-đỏ liếm-bùa (búa liềm), quá xá là vui. Bọn ché đỏ phải huy động làm máy bắn phá, quay pháo hoa ăn mừng Tết của chúng nó, mà chúng nó cũng sợ phải chặn đánh, hài quá xá!
+
 ## JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG: 
 
 - Vì quá nản với cách **xét-lý-lịch** của các "nhân-tài-ở-hải-ngoại", nên DỰ ÁN bị dời tới 10 năm thay vì 1 năm!
