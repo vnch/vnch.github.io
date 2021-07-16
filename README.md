@@ -31,6 +31,12 @@
 - Có phải để VC tồn tại mới có bài vở, đưa tin ở các đài BBC, VOA, RFA...
 - Nhờ VC tồn tại mới có các Facebooker, Youtuber đưa tin live streaming mỗi ngày?
 
+### HỘI CHỨNG HẢI NGOẠI CUỒNG TỔNG THỐNG MỸ, CUỒNG LÃNH TỤ...
+
+- Nền Dân Chủ là PLATFORM chớ không phải là một bộ phim, các diễn viên... để phải cuồng, hâm mộ thái quá
+- Nền Dân Chủ cần được sửa lỗi thường xuyên, chớ không phải lúc nào cũng đúng, lúc nào cũng số 1, lúc nào cũng muôn năm...
+- Các Youtuber hải ngoại rất hay bị hội chứng này CUỒNG TỔNG THỐNG MỸ (CUỒNG LÃNH TỤ)! Chỉ làm kiểu đưa tin tức, đưa bình luận... mà không có tác động gì tới chánh trường để góp phần tiêu diệt bọn Việt-Cộng và Tung-Cộng!!!
+
 #### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
 
 - [x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
