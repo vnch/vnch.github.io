@@ -6,7 +6,8 @@
 
 ## JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG: 
 
-- Vì quá nản với cách **xét-lý-lịch** của các "nhân-tài-ở-hải-ngoại", nên DỰ ÁN bị dời tới 10 năm thay vì 1 năm!
+- Vì quá nản với cách **xét-lý-lịch** của các "quý-ngài-ở-hải-ngoại", nên DỰ ÁN bị dời tới 10 năm thay vì 1 năm!
+- 99% các "quý-ngài-ở-hải-ngoại" **xét-lý-lịch** còn ghê hơn bọn Côn-Ẳng VC, bọn nó chỉ mấy tháng nghĩa vụ là cho vô ngành. Còn các "quý-ngài-ở-hải-ngoại" đã thử thách 2 năm mà vẫn còn coi khinh tuổi trẻ quốc nội & tìm cách bắt bẻ dù chẳng có chứng cớ gì!
 
 ### Ý tưởng được hash 3 lớp Javascript-SHA256 để kiếm chứng sau 10 năm
 
