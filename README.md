@@ -1,5 +1,14 @@
 # PROJECT YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
+![saigon-phone-logo](/public/static/images/saigon-phone.png)
+
+| YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | SAIGON-PHONE HAY SAMSUNG? |
+| :---------------------------------------- | :------------------------ |
+| Chấp VC mở 3 khu cho tung-cộng luôn. Cạnh tranh thử coi đặc khu nào được nhiều dân Việt chào đón nhất. | **Nếu VC không bị lừa tạo ra ngày 30/4** |
+| VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?** | Người Việt chọn SAIGON-PHONE hay SAMSUNG? |
+| ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.2.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.2.jpg) |
+| Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Chỉ có VC bơm vô đầu dân "để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"!!! | ![saigon-phone-tesla-gigafactory](/public/static/images/saigon-phone-tesla-gigafactory.png) |
+
 ## [JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG](/JOIN-US.md)
 
 1. [KHÔNG YÊU CẦU DANH TÁNH, để tránh bị gài bẫy, bị làm mồi cho VC lập công](/JOIN-US.md#khong-yeu-cau-danh-tanh)
@@ -61,7 +70,8 @@
 1. Email: quoccuong (at) protonmail.com
 2. Chat VNCH [gitter.im/vnch](https://gitter.im/vnch/community?utm_source=link) [![Gitter](https://badges.gitter.im/vnch/community.svg)](https://gitter.im/vnch/community?utm_source=badge)
 2. Chat Saigon-Phone [gitter.im/saigon-phone](https://gitter.im/saigon-phone/community?utm_source=link)
-2. Chat: [Matrix @quoccuong:matrix.org](https://matrix.to/#/@quoccuong:matrix.org) | [Matrix Room #vietnam:matrix.org](https://matrix.to/#/!sKBidzLKqCbfOspapM:matrix.org)
+2. Chat: [Matrix @quoccuong:matrix.org](https://matrix.to/#/@quoccuong:matrix.org)
+2. Chat Room: [Matrix Room #vietnam:matrix.org](https://matrix.to/#/!sKBidzLKqCbfOspapM:matrix.org)
 3. Reddit: [/r/newvnch](https://www.reddit.com/r/newvnch/), [The New Việt Nam Cộng Hòa](https://www.reddit.com/r/newvnch/)
 
 ### GIAO KÈO ĐỒNG THUẬN
@@ -165,14 +175,6 @@
 | VC **giỏi phá và đánh chiếm**. Giao nhiệm vụ cho **VC đi đánh chiếm lại Hoàng Sa**. Sau đó chiếm tới Taiwan, chiếm tới South Korea và Japan, cuối cùng chiếm hết China thống nhất Á Đông :D VC vỗ ngực xưng tên **Đế Chế Đông Lào** 🤣🤣🤣 |
 | VC **giỏi ganh ghét người làm thương mại**. Giao nhiệm vụ cho **VC đi điều tra giặt-tiền, trốn-thuế, gian-lận-thương-mại**... của các tập đoàn tung-cộng |
 
-### YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
-
-| YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | SAIGON-PHONE HAY SAMSUNG? |
-| :---------------------------------------- | :------------------------ |
-| Chấp VC mở 3 khu cho tung-cộng luôn. Cạnh tranh thử coi đặc khu nào được nhiều dân Việt chào đón nhất. | **Nếu VC không bị lừa tạo ra ngày 30/4** |
-| VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?** | Người Việt chọn SAIGON-PHONE hay SAMSUNG? |
-| ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.2.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.2.jpg) |
-| Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Chỉ có VC bơm vô đầu dân "để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"!!! | ![saigon-phone-tesla-gigafactory](/public/static/images/saigon-phone-tesla-gigafactory.png) |
 
 ### TÔN GIÁO & LUẬT PHÁP
 - [ ] **VC hãy "quay đầu là bờ"**, đừng đi tới vực thẳm trái ngược lại thế giới văn minh. **VC không có đóng góp gì cho thế giới văn minh**, thì nên biết hối lỗi những điều ác đã làm!
