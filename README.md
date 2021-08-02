@@ -50,7 +50,9 @@
 
 #### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
 
-- [x] Bọn VC đã lừa bịp YT với chiêu bài "nội dung xấu độc". Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
+- 2021/08/01: Channel N10TV Trương Quốc Huy đã bị Mụ-Moon-Hèng-Hạ-Hủ báo cáo report không thể live stream. Channel mới tạo "N10TV ... 2nd" thì bị bọn VC giả mạo, sau đó report láo lừa Youtube's System làm xóa mất kênh chính chủ, kênh giả thì được Youtube's System đưa lên làm kênh thật!!!
+  - Quá nản, đã góp ý cho N10TV từ năm 2019, nhưng anh ấy chê **"Dự án chống giả mạo kênh"** của chúng tôi!
+- [x] Bọn VC đã lừa bịp YT với chiêu bài **"nội dung xấu độc"**. Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước!
 
 ### NHỮNG TRÒ GÂY CHIA RẼ CÔ LẬP CỦA BỌN THÚ HOANG VIỆT-CỘNG
 
