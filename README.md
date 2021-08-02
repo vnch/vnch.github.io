@@ -26,7 +26,7 @@
   - Donate: https://www.patreon.com/dualeone
   - Momo: 0932539510, Nguyễn Lê Minh Ngọc
   - VCB: 0441003723804, Nguyễn Lê Minh Ngọc
-- [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
+- [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/1/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
 - [x] Doanh nhân **Trịnh Vĩnh Bình (Vua chả giỏ) đã thắng kiện bọn VC**. VC là chuyên đi phá hoại kinh doanh sản xuất!
 
 ## OPEN SOURCE LÀ CÔNG KHAI & MINH BẠCH, KHÔNG PHẢI LÀ CỘNG-SẢN!
@@ -180,7 +180,7 @@
 
 ### TÔN GIÁO & LUẬT PHÁP
 - [ ] **VC hãy "quay đầu là bờ"**, đừng đi tới vực thẳm trái ngược lại thế giới văn minh. **VC không có đóng góp gì cho thế giới văn minh**, thì nên biết hối lỗi những điều ác đã làm!
-- [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**, **VC chỉ tạo thiên-đàng-giả**](/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
+- [x] [**Phật** Thích Ca Buddha **từ bỏ thiên-đàng-giả do chính vua cha tạo ra**, **VC chỉ tạo thiên-đàng-giả**](/1/ton-giao/buddha-phat-thich-ca-tu-bo-thien-dang-gia.md)
 - [x] Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Phật nói rằng ai cũng có cơ hội thành Phật, chỉ có VC bơm vô đầu dân **"để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"**
 - [x] Các nước dân chủ đều có mô hình **BỒI THẨM ĐOÀN**, tất cả dân có kiến thức đều được trao quyền xét xử **trọng án**. Còn xứ VC lúc nào cũng coi dân là ngu dốt nên không có quyền tham gia xét xử
 - [x] **VC tạo nghiệp ngày 30/4**. Dân tốn tiền **đi máy bay Mỹ, qua S.Korea làm thuê**! Nếu VC không TẠO-NGHIỆP-30/4 thì dân _đi xe honda xuống VNCH làm ăn có phải tiện hơn không_???
@@ -188,14 +188,14 @@
 | Cẩm nang trả lời những **câu hỏi/lý luận** ngớ ngẫn của Dư Luận Viên CS (DLV). Tâm lý **'tự nhục của VC'**  |
 | :------------- |
 | Tên DLV nào **chửi bậy** nhiều thì gọi là **CHÉ ĐỎ LIẾM BÙA** vì thiếu kiến thức 'lý luận' |
-| [DLV: 1 đảng tốt hơn nhiều đảng cãi nhau???](/cam-nang/tra-loi-dlv.md#dlv-1-đảng-tốt-hơn-nhiều-đảng-cãi-nhau) |
-| [DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-yêu-hòa-bình-ghét-chiến-tranh-hải-ngoại-đừng-về-lật-đổ-nữa) |
-| [DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt](/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-tham-nhũng-chỉ-là-số-ít-còn-đảng-và-hệ-thống-vẫn-tốt) |
-| [DLV: Dù gì thì VC cũng đã thắng VNCH](/cam-nang/tra-loi-dlv.md#dlv-dù-gì-thì-vc-cũng-đã-thắng-vnch) |
-| [DLV: chê hải ngoại ‘ko giúp đc gì cho dân tộc này, chỉ suốt ngày bơi móc, ganh tỵ’](/cam-nang/tra-loi-dlv.md#dlv-chê-hải-ngoại-ko-giúp-đc-gì-cho-dân-tộc-này-chỉ-suốt-ngày-bơi-móc-ganh-tỵ) |
-| [DLV: Cho rằng DLV là viết tắt của Dân Lưu Vong (làm phụ bếp, cào tuyết trốn ở lại Paris, chui thùng container, trốn ở lại South Korea)](/cam-nang/tra-loi-dlv.md) |
-| [DLV: Hải ngoại không đủ tư cách làm 'chính trị'](/cam-nang/tra-loi-dlv.md) |
-| [DLV: Đệ nhất tiên tri Trần Dần đã khen VC](/cam-nang/tra-loi-dlv.md) |
+| [DLV: 1 đảng tốt hơn nhiều đảng cãi nhau???](/1/cam-nang/tra-loi-dlv.md#dlv-1-đảng-tốt-hơn-nhiều-đảng-cãi-nhau) |
+| [DLV: Lấy cớ yêu hòa bình ghét chiến tranh, hải ngoại đừng về 'lật đổ' nữa](/1/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-yêu-hòa-bình-ghét-chiến-tranh-hải-ngoại-đừng-về-lật-đổ-nữa) |
+| [DLV: Lấy cớ tham nhũng chỉ là số ít, còn đảng và hệ thống vẫn tốt](/1/cam-nang/tra-loi-dlv.md#dlv-lấy-cớ-tham-nhũng-chỉ-là-số-ít-còn-đảng-và-hệ-thống-vẫn-tốt) |
+| [DLV: Dù gì thì VC cũng đã thắng VNCH](/1/cam-nang/tra-loi-dlv.md#dlv-dù-gì-thì-vc-cũng-đã-thắng-vnch) |
+| [DLV: chê hải ngoại ‘ko giúp đc gì cho dân tộc này, chỉ suốt ngày bơi móc, ganh tỵ’](/1/cam-nang/tra-loi-dlv.md#dlv-chê-hải-ngoại-ko-giúp-đc-gì-cho-dân-tộc-này-chỉ-suốt-ngày-bơi-móc-ganh-tỵ) |
+| [DLV: Cho rằng DLV là viết tắt của Dân Lưu Vong (làm phụ bếp, cào tuyết trốn ở lại Paris, chui thùng container, trốn ở lại South Korea)](/1/cam-nang/tra-loi-dlv.md) |
+| [DLV: Hải ngoại không đủ tư cách làm 'chính trị'](/1/cam-nang/tra-loi-dlv.md) |
+| [DLV: Đệ nhất tiên tri Trần Dần đã khen VC](/1/cam-nang/tra-loi-dlv.md) |
 
 ## TOC
 
@@ -220,7 +220,7 @@
 ## GIÁM SÁT CHẤT LƯỢNG
 
 ### SỰ TỆ HẠI CỦA VC
-- [x] (Quá tệ) [Việt-Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
+- [x] (Quá tệ) [Việt-Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](/1/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
 
 | (Quá tệ) Việt-Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại** |
 | :------------- |
@@ -244,14 +244,14 @@
 | VC năm 2020/17 **KHÔNG** làm được **VŨ KHÍ NGUYÊN TỬ, ĐẦU ĐẠN HẠT NHÂN** |
 
 - [x] (Quá tệ) VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**
-- [x] (Quá tệ) [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
-- [x] (Quá tệ) [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/vncs-tu-nhuc/tu-nhuc.md)
+- [x] (Quá tệ) [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/1/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
+- [x] (Quá tệ) [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/1/vncs-tu-nhuc/tu-nhuc.md)
 
 ## KIẾN TẠO
 
-- [ ] [Việt-Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**, sẽ thành rồng 2 đầu, cơ hội vô World Cup tăng lên!](/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
-- [ ] [Ý tưởng bầu cử bằng **thi đấu bóng đá**](/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
-- [ ] [Tất cả nhân dân đều có quyền ra **ứng cử và thành lập đảng mới**!](/kien-tao/dan-ung-cu-thu-tuong.md)
+- [ ] [Việt-Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**, sẽ thành rồng 2 đầu, cơ hội vô World Cup tăng lên!](/1/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
+- [ ] [Ý tưởng bầu cử bằng **thi đấu bóng đá**](/1/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
+- [ ] [Tất cả nhân dân đều có quyền ra **ứng cử và thành lập đảng mới**!](/1/kien-tao/dan-ung-cu-thu-tuong.md)
 
 ## GIẢI ẢO, TƯ DUY, SO SÁNH
 
