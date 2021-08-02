@@ -109,6 +109,10 @@
 
 ### News
 
+- VC cố tình cho "con-ông-ngoại" chụp hình khoe thân đã được tiêm vac-cine Pfizer hàng Mỹ+Đức
+  - Mục tiêu là để quảng cáo rằng theo cộng sẽ có quyền lợi ăn trên ngồi tróc
+  - Nào ngờ bị phản dame, bị dân chửi quá nên đánh thì tốt cô y tá, còn ông ngoại vẫn phà phà. Chắc sắp tới còn được tiêm mũi 2 của hãng Mo-derna, do sợ Pfi-zer có liên doanh với tung-cộng
+
 - VC khoe chạy chức tiền tỉ mỗi lần đại hội
   - Gài hải ngoại đưa tin chạy chức, chạy đại biểu quốc hội tiền tỉ, triệu đô
   - Từ đó VC ngầm thể hiện khoe rằng làm quan chức ở xứ VC rất có giá, phải tốn tiền nhiều mới có chức quyền!
