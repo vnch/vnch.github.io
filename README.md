@@ -111,6 +111,28 @@
 
 ### News
 
+- Mụ-Moon-Hèng-Hủ lộ rõ bản mặt bợ-đít VC cùng thằng -Dũy-Ng-Gymer
+  - Ngày nay, Mụ-Moon-Hèng-Hủ cũng lên chê N10TV nghèo, ít tiền. Suy ra Mụ-Moon-Hèng-Hủ  này đang chê cái tên Hù-Tặc mà mụ đang bợ-đít hồi xưa cũng chỉ sống trong hang, trên răng dưới 2 hòn déo, há há há
+  - Lúc trước -Dũy-Ng-Gymer cũng chê làm dân chủ nghèo tiền không bằng nó
+
+- "Phản dame" -Dũy-Ng-Gymer
+  - -Dũy-Ng-Gymer là kẻ cơ hội & lươn lẹo, nhảy qua Gymer và giàu lên thì lại nhờ làm cò đất.
+  - -Dũy-Ng-Gymer hay khoe tiền bạc, nhà cửa... và cho đó mới là có giá trị, có văn minh.
+  - -Dũy-Ng-Gymer đang "dame" hải ngoại, nhưng không khác gì "chửi khéo" ông Hồ Chí Minh:
+    - Ông HCM nghèo rớt mồng tơi, cơ thể gầy gò, ốm yếu không có cơ bắp bằng -Dũy-Ng-Gymer.
+    - Ông HCM mang danh đi "du học", nhưng về nước lại sống trong hang Pác Pó, không có lấy "4 cái nhà" (4 cái làng), không có cái "xe 7 tỷ"... 
+    - "Nhục chưa" là câu nói cửa miệng của -Dũy-Ng-Gymer trong các videos. Ông HCM có nhục chưa???
+    - Nếu ông Hồ Chí Minh sống ở thời đại này, thì chắc chắn sẽ bị -Dũy-Ng-Gymer chửi SML trên các live stream của anh ta vì không giàu bằng anh ta!
+
+- Mụ-Moon-Hèng-Hủ & Hít-cơ Nhâm-Gia-Lẹo
+  - Mụ-Moon-Hèng-Hủ là con bài đánh lạc hướng dư luận để bọn VC bầu bán quan chức đại hội lên đồng
+  - Hít-cơ Nhâm-Gia-Lẹo là dạng rau râm hoang tưởng, tìm mấy cái bài thơ rồi thẩm-du cho rằng có-phẻn-động, phẻn-động đang âm mưu ra ám hiệu. Cái lùm mía, cười té ghế với thằng hít-cơ hoang tưởng này.
+
+- CÁC SỰ KIỆN ĐÁNH LẠC HƯỚNG DỰ DÂN KHI VC ĐANG TỔ CHỨC ĐẠI HỘI
+  - Mụ-Moon-Hèng-Hủ lên mạng live stream, giả đò khóc lóc đòi bán hết tài sản rời khỏi Việt-Cộng
+  - Vụ kiện VinPhét tố khách hàng
+  - Ra mắt con hàng hít-cơ HẻoPC. HẻoWC không thấy xung phong đi tiêm vac-cine hàng tung-cộng
+
 - VC cố tình cho "con-ông-ngoại" chụp hình khoe thân đã được tiêm vac-cine Pfizer hàng Mỹ+Đức
   - Mục tiêu là để quảng cáo rằng theo cộng sẽ có quyền lợi ăn trên ngồi tróc
   - Nào ngờ bị phản dame, bị dân chửi quá nên đánh thì tốt cô y tá, còn ông ngoại vẫn phà phà. Chắc sắp tới còn được tiêm mũi 2 của hãng Mo-derna, do sợ Pfi-zer có liên doanh với tung-cộng
@@ -118,15 +140,6 @@
 - VC khoe chạy chức tiền tỉ mỗi lần đại hội
   - Gài hải ngoại đưa tin chạy chức, chạy đại biểu quốc hội tiền tỉ, triệu đô
   - Từ đó VC ngầm thể hiện khoe rằng làm quan chức ở xứ VC rất có giá, phải tốn tiền nhiều mới có chức quyền!
-
-- "Phản dame" Duy Nguyễn
-  - Duy Nguyễn là kẻ cơ hội & lươn lẹo, đi học nghề IT nhưng giờ đã nhảy qua Gymer và giàu lên thì lại nhờ làm cò đất.
-  - Duy Nguyễn hay khoe tiền bạc, nhà cửa... và cho đó mới là có giá trị, có văn minh.
-  - Duy Nguyễn đang "dame" hải ngoại, nhưng không khác gì "chửi khéo" ông Hồ Chí Minh:
-    - Ông HCM nghèo rớt mồng tơi, cơ thể gầy gò, ốm yếu không có cơ bắp bằng Duy Nguyễn.
-    - Ông HCM mang danh đi "du học", nhưng về nước lại sống trong hang Pác Pó, không có lấy "4 cái nhà" (4 cái làng), không có cái "xe 7 tỷ"... 
-    - "Nhục chưa" là câu nói cửa miệng của Duy Nguyễn trong các videos. Ông HCM có nhục chưa???
-    - Nếu ông Hồ Chí Minh sống ở thời đại này, thì chắc chắn sẽ bị Duy Nguyễn chửi SML trên các live stream của anh ta vì không giàu bằng anh ta!
 
 - Tài xế Grab chỉ dám biểu tình chống Grab mà không dám chống chế độ VC?
   - Grab muốn hoạt động và lớn mạnh ở xứ VC thì đều phải hối lộ qua trung gian
