@@ -17,7 +17,7 @@
 2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC!](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
 3. [ĐẤU TRANH THẬT SỰ THÌ PHẢI KHÔNG ĐỂ BỊ BẮT, KHÔNG CHO BỌN Việt-Cộng LẬP CÔNG, KHÔNG CHO Việt-Cộng ĐEM TÙ NHÂN CHÁNH TRỊ (TÙ NHÂN LƯƠNG TÂM) RA TRAO ĐỔI LẤY LỢI ÍCH HIỆP ĐỊNH THƯƠNG MẠI!](/JOIN-US.md#khong-de-bon-vc-lap-cong-trao-doi-tu-nhan)
 
-## KHỞI KIỆN VIỆT CỘNG
+## DIỆT CỘNG, KHỞI KIỆN VIỆT CỘNG
 
 - [ ] Youtuber Dưa Leo (Nguyễn Phúc Gia Huy) đang khởi kiện bọn báo-nhân-dân của bọn VC
   - **Dưa Leo Reaction - bài báo nhân dân VU KHỐNG XÚC PHẠM** [https://m.youtube.com/watch?v=GX9th14KV7I](https://m.youtube.com/watch?v=GX9th14KV7I)
@@ -44,8 +44,8 @@
 
 ### HỘI CHỨNG HẢI NGOẠI CUỒNG TỔNG THỐNG MỸ, CUỒNG LÃNH TỤ...
 
-- Nền Dân Chủ là PLATFORM chớ không phải là một bộ phim, các diễn viên... để phải cuồng, hâm mộ thái quá
-- Nền Dân Chủ cần được sửa lỗi thường xuyên, chớ không phải lúc nào cũng đúng, lúc nào cũng số 1, lúc nào cũng muôn năm...
+- Nền Dân Chủ là PLATFORM (ECOSYSTEM), cần được sửa lỗi thường xuyên, chớ không phải lúc nào cũng đúng, lúc nào cũng số 1, lúc nào cũng muôn năm...
+- Nền Dân Chủ là PLATFORM (ECOSYSTEM), chớ không phải là một bộ phim, các diễn viên... để phải cuồng, hâm mộ thái quá
 - Các Youtuber hải ngoại rất hay bị hội chứng này CUỒNG TỔNG THỐNG MỸ (CUỒNG LÃNH TỤ)! Chỉ làm kiểu đưa tin tức, đưa bình luận... mà không có tác động gì tới chánh trường để góp phần tiêu diệt bọn Việt-Cộng và Tung-Cộng!!!
 
 #### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
