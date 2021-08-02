@@ -105,6 +105,8 @@
   - Ché đỏ thì dù đi du học thì cũng không văn minh hơn, mà sẽ giống chim tu hú, học xong rồi cũng cung phụng bọn tà quyền độc đảng độc tài!
 
 - Phim 'Matrix' (Ma trận)
+  - Năm 2021, VC lợi dụng tài nguyên của dân&rau-râm, để bơm vac_cine hàng Mỹ+Đức cho con ông ngoại
+    - Con ông ngoại được tiêm hàng ngon xong, thì bọn VC reset lại matrix, thí tốt tẩy não là xong phim
   - Nói về cái thiên đàng giả do bọn cai trị tạo ra, giống hệt bọn CS mị dân bằng sự giả tạo
 
 ### News
