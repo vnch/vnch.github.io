@@ -98,6 +98,8 @@
   - Đúng ra phim này phải được làm ra ở xứ Việt-Cộng vì đồng tiền VC đang có nhiều số 0 mất giá nhất thế giới!
 
 - Phim Vivarium (2019)
+  - Năm 2021, Việt-Cộng lợi dụng dân góp tiền vac-cine, nhưng mẹ của cháu của "ông ngoại" đòi Pfi-zer hàng Mỹ+Đức
+   - Dân VN sẽ tự đào hố chôn, vì sẽ được tiêm vac-cine hàng tàu do các đại-tư-sản-cộng bưng-bô bợ-đít tung-cộng lấy tiền được hỗ trợ để mua về. Thú vị nhất là các sếp dù hồi xưa du học tung-cộng & liên-xô-cộng, nhưng toàn đã tiêm vac-cine Mỹ Mãn
   - Chỉ rõ sự xảo trá của bọn CS (chim tu hú). VC năm 2020 nhận tiền viện trợ y tế của Hoa Kỳ hơn 100 triệu USD, nhưng lại cấu kết với tung-cộng để che dấu dịch, đánh tráo nguồn gốc dịch, vẽ ra những dấu vết tào lao: dịch tồn tại trên hàng hải sản nhập khẩu từ phương Tây!
   - Xứ Việt-Cộng & Tung-Cộng là chuyên gia thổi giá bất động sản. Bọn này đi tới đâu là phá thị trường tới đó, làm cho dân bản địa khó mua nhà hơn
   - Ché đỏ thì dù đi du học thì cũng không văn minh hơn, mà sẽ giống chim tu hú, học xong rồi cũng cung phụng bọn tà quyền độc đảng độc tài!
