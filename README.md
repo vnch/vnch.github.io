@@ -111,11 +111,15 @@
 
 ### News
 
-- Mụ-Moon-Hèng-Hủ lộ rõ bản mặt bợ-đít VC cùng thằng -Dũy-Ng-Gymer
+- **Vẹm-Thẹo-Phét** chi tiền hay rửa-tiền để mua vac_cine hàng tung-cộng?
+- **Dững Lò Vẹm** là côn-ẳng thứ dữ, **hoa-cải-lên-trời** chính hiệu
+  - Làm hậu cần trong côn-ẳng thì không thể là con dân đen được
+  - Gom đất đai giá rẻ làm giàu, rồi vẽ dự án mời tung-cộng tới mở hãng xưởng nhà máy
+- **Mụ-Moon-Hèng-Hủ** lộ rõ bản mặt bợ-đít VC cùng thằng -Dũy-Ng-Gymer
   - Ngày nay, Mụ-Moon-Hèng-Hủ cũng lên chê N10TV nghèo, ít tiền. Suy ra Mụ-Moon-Hèng-Hủ  này đang chê cái tên Hù-Tặc mà mụ đang bợ-đít hồi xưa cũng chỉ sống trong hang, trên răng dưới 2 hòn déo, há há há
   - Lúc trước -Dũy-Ng-Gymer cũng chê làm dân chủ nghèo tiền không bằng nó
 
-- "Phản dame" -Dũy-Ng-Gymer
+- "Phản dame" **-Dũy-Ng-Gymer**
   - -Dũy-Ng-Gymer là kẻ cơ hội & lươn lẹo, nhảy qua Gymer và giàu lên thì lại nhờ làm cò đất.
   - -Dũy-Ng-Gymer hay khoe tiền bạc, nhà cửa... và cho đó mới là có giá trị, có văn minh.
   - -Dũy-Ng-Gymer đang "dame" hải ngoại, nhưng không khác gì "chửi khéo" ông Hồ Chí Minh:
