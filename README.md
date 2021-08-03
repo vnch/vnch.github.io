@@ -1,5 +1,13 @@
 # PROJECT YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
+## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
+
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-râm** phải xài hàng tàu nhường hãng Mỹ cho lãnh-địu-VC
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải **để lại đất đai giá rẻ** cho gia đình con cháu lãnh-địu-VC xài bán ăn lời
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-râm** phải nhường gái đẹp cho các lãnh-địu-VC cưới 2-3 vợ
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải sống khổ cách ly khi đại dịch, để lãnh-địu-VC giàu sang ở nhà dư thừa đồ ăn, vac_cine hàng Mỹ loại xịn, tiêm 3 mũi trong tầm tay!
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải **mang danh phản động** còn, lãnh-địu-VC thì vô tư hợp thức hóa **3 đặc khu bán đất 99 năm** cho tung-cộng, còn người anh em VNCH thì chúng nó nhất định tiêu diệt!
+
 ![saigon-phone-logo](/public/static/images/saigon-phone.png)
 
 | YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | SAIGON-PHONE HAY SAMSUNG? |
