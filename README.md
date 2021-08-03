@@ -2,6 +2,7 @@
 
 ## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
 
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **Mụ-Moon-Hèng-Hủ** lên khoe "có pháp luật nha quý vị" đối với người giàu chóp bu, còn dân đi **mua bánh mì** thì phải chịu chửi khinh bỉ: **"mày ở trên núi xuống phải không"**
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-râm** phải xài hàng tàu nhường hãng Mỹ cho lãnh-địu-VC
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải **để lại đất đai giá rẻ** cho gia đình con cháu lãnh-địu-VC xài bán ăn lời
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-râm** phải nhường gái đẹp cho các lãnh-địu-VC cưới 2-3 vợ
