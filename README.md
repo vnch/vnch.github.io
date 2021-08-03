@@ -148,6 +148,7 @@
   - Mụ-Moon-Hèng-Hủ lên mạng live stream, giả đò khóc lóc đòi bán hết tài sản rời khỏi Việt-Cộng
   - Vụ kiện VinPhét tố khách hàng
   - Ra mắt con hàng hít-cơ HẻoPC. HẻoWC không thấy xung phong đi tiêm vac-cine hàng tung-cộng
+  - Trẻ trâu du học Úc châu, đi xé cờ vàng, chửi bới sỉ nhục cờ vàng
 
 - VC cố tình cho "con-ông-ngoại" chụp hình khoe thân đã được tiêm vac-cine Pfizer hàng Mỹ+Đức
   - Mục tiêu là để quảng cáo rằng theo cộng sẽ có quyền lợi ăn trên ngồi tróc
