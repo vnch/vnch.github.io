@@ -2,13 +2,13 @@
 
 ## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
 
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là dân phải tự góp tiền cùng hải ngoại, gửi về giúp dân trong nước, còn lãnh-địu-VC rất tích cực có niềm vui vì tự nhiên lại có thêm tiền để gửi bank lấy lãi, tiện thể gom đất mua nhà mua xe. Thank you so much!
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là dân phải tự góp tiền cùng hải ngoại, gửi về giúp dân trong nước, còn lãnh-địu-VC rất tích cực, niềm vui tràn trề, vì tự nhiên lại có thêm tiền để gửi bank lấy lãi, tiện thể gom đất mua nhà mua xe, gửi con cái đi du học ăn bơ-sữa-rượu-nho thượng hạng, ứ thèm nước-mắm-chấm-rau-răm. Thank **Rau-Răm-Bay** so much!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải mua xe lởm gắn mác yêu nước của **VinPhét-BốcCớt**, để tập đoàn nhóm lợi ích thân **VC-LiênXô** chôm **5000 liều vac_cine** hàng Mỹ-Đế chính hiệu!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là y tá chích mót vac-cine Pfi-zer phải chịu tội thay, để tẩy não dân thay cho "con ông nội"
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **Mụ-Moon-Hèng-Hủ** lên khoe "có pháp luật nha quý vị" đối với người giàu chóp bu, còn dân đi **mua bánh mì** thì phải chịu chửi khinh bỉ: **"mày ở trên núi xuống phải không"**
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-râm** phải xài hàng tàu nhường hãng Mỹ cho lãnh-địu-VC
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải xài hàng tàu nhường hãng Mỹ cho lãnh-địu-VC
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải **để lại đất đai giá rẻ** cho gia đình con cháu lãnh-địu-VC xài bán ăn lời
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-râm** phải nhường gái đẹp cho các lãnh-địu-VC cưới 2-3 vợ
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải nhường gái đẹp cho các lãnh-địu-VC cưới 2-3 vợ
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải sống khổ cách ly khi đại dịch, để lãnh-địu-VC giàu sang ở nhà dư thừa đồ ăn, vac_cine hàng Mỹ loại xịn, tiêm 3 mũi trong tầm tay!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải **mang danh phản động** còn, lãnh-địu-VC thì vô tư hợp thức hóa **3 đặc khu bán đất 99 năm** cho tung-cộng, còn người anh em VNCH thì chúng nó nhất định tiêu diệt!
 
@@ -117,7 +117,7 @@
   - Ché đỏ thì dù đi du học thì cũng không văn minh hơn, mà sẽ giống chim tu hú, học xong rồi cũng cung phụng bọn tà quyền độc đảng độc tài!
 
 - Phim 'Matrix' (Ma trận)
-  - Năm 2021, VC lợi dụng tài nguyên của dân&rau-râm, để bơm vac_cine hàng Mỹ+Đức cho con ông ngoại
+  - Năm 2021, VC lợi dụng tài nguyên của dân&rau-răm, để bơm vac_cine hàng Mỹ+Đức cho con ông ngoại
     - Con ông ngoại được tiêm hàng ngon xong, thì bọn VC reset lại matrix, thí tốt tẩy não là xong phim
   - Nói về cái thiên đàng giả do bọn cai trị tạo ra, giống hệt bọn CS mị dân bằng sự giả tạo
 
@@ -143,7 +143,7 @@
 
 - Mụ-Moon-Hèng-Hủ & Hít-cơ Nhâm-Gia-Lẹo
   - Mụ-Moon-Hèng-Hủ là con bài đánh lạc hướng dư luận để bọn VC bầu bán quan chức đại hội lên đồng
-  - Hít-cơ Nhâm-Gia-Lẹo là dạng rau râm hoang tưởng, tìm mấy cái bài thơ rồi thẩm-du cho rằng có-phẻn-động, phẻn-động đang âm mưu ra ám hiệu. Cái lùm mía, cười té ghế với thằng hít-cơ hoang tưởng này.
+  - Hít-cơ Nhâm-Gia-Lẹo là dạng rau-răm hoang tưởng, tìm mấy cái bài thơ rồi thẩm-du cho rằng có-phẻn-động, phẻn-động đang âm mưu ra ám hiệu. Cái lùm mía, cười té ghế với thằng hít-cơ hoang tưởng này.
 
 - CÁC SỰ KIỆN ĐÁNH LẠC HƯỚNG DỰ DÂN KHI VC ĐANG TỔ CHỨC ĐẠI HỘI
   - Mụ-Moon-Hèng-Hủ lên mạng live stream, giả đò khóc lóc đòi bán hết tài sản rời khỏi Việt-Cộng
