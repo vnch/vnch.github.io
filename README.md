@@ -113,6 +113,7 @@
 
 - **Vẹm-Thẹo-Phét** chi tiền hay rửa-tiền để mua vac_cine hàng tung-cộng?
 - **Dững Lò Vẹm** là côn-ẳng thứ dữ, **hoa-cải-lên-trời** chính hiệu
+  - Điểm yếu của côn-ẳng là bị **Võ Hèng Ênh** dắt mũi & lừa tình cả vợ con
   - Làm hậu cần trong côn-ẳng thì không thể là con dân đen được
   - Gom đất đai giá rẻ làm giàu, rồi vẽ dự án mời tung-cộng tới mở hãng xưởng nhà máy
 - **Mụ-Moon-Hèng-Hủ** lộ rõ bản mặt bợ-đít VC cùng thằng -Dũy-Ng-Gymer
