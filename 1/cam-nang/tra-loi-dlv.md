@@ -8,6 +8,7 @@
   - 'Dân Lưu Vong' phải là những người dòng họ **nhà quan VC có hậu-duệ-quan-hệ**, sau đó đi ngoại giao qua South Korea, rồi **trốn ở lại South Korea** luôn! Ủa sao không trốn qua _North Korea_ cho 'thắm tình đồng chí'
 
 ### DLV: 1 đảng tốt hơn nhiều đảng cãi nhau???
+  - **1 Trái Đất** không thể tạo ra sự sống, mà cần tới **Mặt Trời** và **Mặt Trăng**. Tạo thành **bộ 3 phối hợp**, hỗ trợ nhau mới là điều kiện đủ để hình thành sự sống của muôn loài! Side-effect là tạo ra loài CộngSản **vừa ác+vừa lỳ+vừa điếm+vừa thúi**... lúc nào cũng đòi độc tôn & độc địa!!!
   - **Ngôi nhà** để xây được  thì cần có ít nhất **3 cột trụ**, cả thế giới đều **xây nhà 4 cột trụ**
   - **Bếp lò** nấu ăn cũng cần có ít nhất là **3 chân, 4 chân** mới đỡ được cái nồi chảo
   - **Cái ghế, cái bàn** còn phải cần có **4 chân**
