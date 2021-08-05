@@ -8,13 +8,14 @@
   - 'Dân Lưu Vong' phải là những người dòng họ **nhà quan VC có hậu-duệ-quan-hệ**, sau đó đi ngoại giao qua South Korea, rồi **trốn ở lại South Korea** luôn! Ủa sao không trốn qua _North Korea_ cho 'thắm tình đồng chí'
 
 ### DLV: 1 đảng tốt hơn nhiều đảng cãi nhau???
-  - **1 Trái Đất** không thể tạo ra sự sống, mà cần tới **Mặt Trời** và **Mặt Trăng**. Tạo thành **bộ 3 phối hợp**, hỗ trợ nhau mới là điều kiện đủ để hình thành sự sống của muôn loài! Side-effect là tạo ra loài CộngSản **vừa ác+vừa lỳ+vừa điếm+vừa thúi**... lúc nào cũng đòi độc tôn & độc địa!!!
+  - **1 Trái Đất** không thể tạo ra môi trường cần và đủ cho sự sống sinh sôi, mà cần tới **Mặt Trời** và **Mặt Trăng**. Tạo thành **bộ 3 phối hợp**, hỗ trợ nhau mới là điều kiện đủ để hình thành sự sống của muôn loài! Side-effect là tạo ra loài CộngSản **vừa ác+vừa lỳ+vừa điếm+vừa thúi**... lúc nào cũng đòi độc tôn & độc địa!!!
+    - (**Ché-đỏ-liếm-bùa Đũy-Ng-Gymer** dạo này còn bày đặt đú về vũ trụ, hố đen, sao lùn trắng...)
+  - **Trong tự nhiên** có loài tự sinh sản, nhưng để phát triển tốt thì phải có **2 giống đực và cái** phối hợp nhau. Loài tự sinh sản đều bị thoái hóa dần qua các thế hệ!
   - **Ngôi nhà** để xây được  thì cần có ít nhất **3 cột trụ**, cả thế giới đều **xây nhà 4 cột trụ**
   - **Bếp lò** nấu ăn cũng cần có ít nhất là **3 chân, 4 chân** mới đỡ được cái nồi chảo
   - **Cái ghế, cái bàn** còn phải cần có **4 chân**
   - **Xe đạp, xe máy, xe hơi**... cũng phải cần có **2 bánh xe, 4 bánh xe**
   - **Đũa** của người châu Á cũng phải cần có **2 chiếc đũa**, **nĩa** của phương Tây cần tới **3 chĩa**
-  - **Trong tự nhiên** có loài tự sinh sản, nhưng để phát triển tốt thì phải có **2 giống đực và cái** phối hợp nhau. Loài tự sinh sản đều bị thoái hóa dần qua các thế hệ!
   - **Động vật hay loài người** thì cũng cần có ít nhất **2 chân hoặc 4 chân** mới đứng vững
     - Con cá dưới nước mà cũng phải cần **2 vây + 1 đuôi**
     - Con chim trên trời cũng phải cần **2 cái cánh**

@@ -2,6 +2,7 @@
 
 ## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
 
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không biết xấu hổ khi đồng tiền in hình lãnh-tụ của-VC-duy-nhất-độc-tôn có GIÁ TRỊ THẤP NHẤT THẾ GIỚI. Vẫn phải tự hào đi xuất khẩu-lao-động, chui-container-lạnh... hơn 20 năm mà hồ-tệ vẫn càng ngày càng rớt giá!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không được sân si với triều-đình-VC (không được biểu tình, không được lập đảng mới), phải bưng bô như **Mụ-Moon-Hèng-Hủ**, nếu không sẽ bị coi là vô ơn. Suy nghĩ kiểu VC thì không khác gì đang chửi ông Phật Buddha (Bụt đà), đã từ bỏ thiên đàng do vua cha dựng ra trong hoàng cung, để tạo lập ra tôn giáo bình đẳng: **Chúng sanh ai cũng có thể thành Phật**.
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là dân phải tự góp tiền cùng hải ngoại, gửi về giúp dân trong nước, còn lãnh-địu-VC rất tích cực, niềm vui tràn trề, vì tự nhiên lại có thêm tiền để gửi bank lấy lãi, tiện thể gom đất mua nhà mua xe, gửi con cái đi du học ăn bơ-sữa-rượu-nho thượng hạng, ứ thèm nước-mắm-chấm-rau-răm. Thank **Rau-Răm-Bay** so much!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải mua xe lởm gắn mác yêu nước của **VinPhét-BốcCớt**, để tập đoàn nhóm lợi ích thân **VC-LiênXô** chôm **5000 liều vac_cine** hàng Mỹ-Đế chính hiệu!
@@ -129,18 +130,18 @@
   - Điểm yếu của côn-ẳng là bị **Võ Hèng Ênh** dắt mũi & lừa tình cả vợ con
   - Làm hậu cần trong côn-ẳng thì không thể là con dân đen được
   - Gom đất đai giá rẻ làm giàu, rồi vẽ dự án mời tung-cộng tới mở hãng xưởng nhà máy
-- **Mụ-Moon-Hèng-Hủ** lộ rõ bản mặt bợ-đít VC cùng thằng -Dũy-Ng-Gymer
+- **Mụ-Moon-Hèng-Hủ** lộ rõ bản mặt bợ-đít VC cùng thằng Đũy-Ng-Gymer
   - Ngày nay, Mụ-Moon-Hèng-Hủ cũng lên chê N10TV nghèo, ít tiền. Suy ra Mụ-Moon-Hèng-Hủ  này đang chê cái tên Hù-Tặc mà mụ đang bợ-đít hồi xưa cũng chỉ sống trong hang, trên răng dưới 2 hòn déo, há há há
-  - Lúc trước -Dũy-Ng-Gymer cũng chê làm dân chủ nghèo tiền không bằng nó
+  - Lúc trước Đũy-Ng-Gymer cũng chê làm dân chủ nghèo tiền không bằng nó
 
-- "Phản dame" **-Dũy-Ng-Gymer**
-  - -Dũy-Ng-Gymer là kẻ cơ hội & lươn lẹo, nhảy qua Gymer và giàu lên thì lại nhờ làm cò đất.
-  - -Dũy-Ng-Gymer hay khoe tiền bạc, nhà cửa... và cho đó mới là có giá trị, có văn minh.
-  - -Dũy-Ng-Gymer đang "dame" hải ngoại, nhưng không khác gì "chửi khéo" ông Hồ Chí Minh:
-    - Ông HCM nghèo rớt mồng tơi, cơ thể gầy gò, ốm yếu không có cơ bắp bằng -Dũy-Ng-Gymer.
+- "Phản dame" **Đũy-Ng-Gymer**
+  - Đũy-Ng-Gymer là kẻ cơ hội & lươn lẹo, nhảy qua Gymer và giàu lên thì lại nhờ làm cò đất.
+  - Đũy-Ng-Gymer hay khoe tiền bạc, nhà cửa... và cho đó mới là có giá trị, có văn minh.
+  - Đũy-Ng-Gymer đang "dame" hải ngoại, nhưng không khác gì "chửi khéo" ông HCM:
+    - Ông HCM nghèo rớt mồng tơi, cơ thể gầy gò, ốm yếu không có cơ bắp bằng Đũy-Ng-Gymer.
     - Ông HCM mang danh đi "du học", nhưng về nước lại sống trong hang Pác Pó, không có lấy "4 cái nhà" (4 cái làng), không có cái "xe 7 tỷ"... 
-    - "Nhục chưa" là câu nói cửa miệng của -Dũy-Ng-Gymer trong các videos. Ông HCM có nhục chưa???
-    - Nếu ông Hồ Chí Minh sống ở thời đại này, thì chắc chắn sẽ bị -Dũy-Ng-Gymer chửi SML trên các live stream của anh ta vì không giàu bằng anh ta!
+    - "Nhục chưa" là câu nói cửa miệng của Đũy-Ng-Gymer trong các videos. Ông HCM có nhục chưa???
+    - Nếu ông HCM sống ở thời đại này, thì chắc chắn sẽ bị Đũy-Ng-Gymer chửi SML trên các live stream của anh ta vì không giàu bằng anh ta!
 
 - Mụ-Moon-Hèng-Hủ & Hít-cơ Nhâm-Gia-Lẹo
   - Mụ-Moon-Hèng-Hủ là con bài đánh lạc hướng dư luận để bọn VC bầu bán quan chức đại hội lên đồng
