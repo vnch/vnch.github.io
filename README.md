@@ -7,6 +7,7 @@
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là dân phải tự góp tiền cùng hải ngoại, gửi về giúp dân trong nước, còn lãnh-địu-VC rất tích cực, niềm vui tràn trề, vì tự nhiên lại có thêm tiền để gửi bank lấy lãi, tiện thể gom đất mua nhà mua xe, gửi con cái đi du học ăn bơ-sữa-rượu-nho thượng hạng, ứ thèm nước-mắm-chấm-rau-răm. Thank **Rau-Răm-Bay** so much!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải mua xe lởm gắn mác yêu nước của **VinPhét-BốcCớt**, để tập đoàn nhóm lợi ích thân **VC-LiênXô** chôm **5000 liều vac_cine** hàng Mỹ-Đế chính hiệu!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là y tá chích mót vac-cine Pfi-zer phải chịu tội thay, để tẩy não dân thay cho "con ông nội"
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải KHÔNG ĐƯỢC CHỌN LOẠI VAC_CINE được tiêm vào cơ thể của bản thân. <Đòi lựa vac-cine, kén cá chọn canh, được voi đòi Hai-Bà-Trưng... cái gì, có chích là mừng rồi> - một cháu ông ngoại của lãnh-địu-VC cho hay, cháu ngoại rất có tài, cháu ngoại phát biểu quá chuẩn cháu ông tờ-lú-luẩn
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **Mụ-Moon-Hèng-Hủ** lên khoe "có pháp luật nha quý vị" đối với người giàu chóp bu, còn dân đi **mua bánh mì** thì phải chịu chửi khinh bỉ: **"mày ở trên núi xuống phải không"**
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải xài hàng tàu nhường hãng Mỹ cho lãnh-địu-VC
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải **để lại đất đai giá rẻ** cho gia đình con cháu lãnh-địu-VC xài bán ăn lời
