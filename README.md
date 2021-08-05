@@ -102,6 +102,7 @@
 ### Review Phim
 
 - Phim 'The Platform' (Hố Sâu Đói Khát) trên Netflix bị bọn ché-đỏ-liếm-bùa nói ngược, chúng nó quên luôn chính platform mới là thủ phạm chính
+  - Năm 2021, Việt-Cộng đẩy dân Sài Gòn vô cái Platform do chúng nó tạo ra viện cớ lý do dịch bệnh. Mục đích là để chúng bán phát thức ăn (đi mua bánh mì chúng cũng không cho), ban phát vac-cine theo từng tầng giai cấp (không theo tuổi tác), **tầng-trên** (cháu ông ngoại) thì xài loại xịn, tiêm chích không chừa chút nào cho tầng-dưới, còn lấy y tá ra làm tốt thí
   - Phim rõ ràng nói về một platform được tạo ra giống hệt kiểu BAO-CẤP-CỘNG-SẢN.
   - Chính cái platform cố tình hạn chế nguồn cung, hạn chế tư duy sáng tạo, hạn chế đủ thứ.... Từ những hạn chế dốt nát đó mới khơi ra cái ác của con người. Giống hệt kiểu quản lý ngu dốt kiểu cộng sản thời bao cấp, làm cho thiếu thốn đủ thứ. Tới thế kỷ 21 mà VC vẫn thiếu luôn tự do ngôn luận, thiếu luôn tự do ứng cử tranh cử... dù chúng nó luôn ra rả cái mồm là nước dân chủ, nước xã hội chủ nghĩa!
   - Nhóm nhân vật chính trong phim là đề cao chủ nghĩa dân túy. Họ đứng lên chống lại cái platform BAO-CẤP-CỘNG-SẢN tào lao dốt nát. Chống lại cái nhà tù khổ sai không có nhân quyền, không cho tù nhân ý kiến, bày tỏ nguyện vọng... không khác gì bọn VC ở thế kỷ 21!
