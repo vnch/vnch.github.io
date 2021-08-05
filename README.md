@@ -2,6 +2,7 @@
 
 ## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
 
+- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không biết xấu hổ khi đồng tiền in hình lãnh-tụ của-VC-duy-nhất-độc-tôn có GIÁ TRỊ THẤP NHẤT THẾ GIỚI. Vẫn phải tự hào đi xuất khẩu-lao-động, chui-container-lạnh... hơn 20 năm mà hồ-tệ vẫn càng ngày càng rớt giá!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không được sân si với triều-đình-VC (không được biểu tình, không được lập đảng mới), phải bưng bô như **Mụ-Moon-Hèng-Hủ**, nếu không sẽ bị coi là vô ơn. Suy nghĩ kiểu VC thì không khác gì đang chửi ông Phật Buddha (Bụt đà), đã từ bỏ thiên đàng do vua cha dựng ra trong hoàng cung, để tạo lập ra tôn giáo bình đẳng: **Chúng sanh ai cũng có thể thành Phật**.
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là dân phải tự góp tiền cùng hải ngoại, gửi về giúp dân trong nước, còn lãnh-địu-VC rất tích cực, niềm vui tràn trề, vì tự nhiên lại có thêm tiền để gửi bank lấy lãi, tiện thể gom đất mua nhà mua xe, gửi con cái đi du học ăn bơ-sữa-rượu-nho thượng hạng, ứ thèm nước-mắm-chấm-rau-răm. Thank **Rau-Răm-Bay** so much!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải mua xe lởm gắn mác yêu nước của **VinPhét-BốcCớt**, để tập đoàn nhóm lợi ích thân **VC-LiênXô** chôm **5000 liều vac_cine** hàng Mỹ-Đế chính hiệu!
