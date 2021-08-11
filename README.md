@@ -35,6 +35,8 @@
 ## DIỆT CỘNG, KHỞI KIỆN VIỆT CỘNG
 
 - [ ] Youtuber Dưa Leo (Nguyễn Phúc Gia Huy) đang khởi kiện bọn báo-nhân-dân của bọn VC
+  - Năm 2021, Dưa Leo than khóc vì bị Facebook bịt miệng (phải "đi tu" trong 30 ngày vì status bị report). Đây tiếp tục là một ví dụ vì chê dự án chúng tôi đã nêu từ năm 2019: **Kiến nghị Facebook sửa lại cách hoạt động của Community Standards** (đã đăng trên Reddit)
+    - Cái "sân khấu Facebook" có scaffold quá tệ. Biểu diễn nhưng lại không góp ý chỉnh sửa platform, cứ lo cắm đầu vô đó biểu diễn thì bị nó Facebook vật là phải rồi, còn gì nữa đâu mà khóc với sầu!
   - **Dưa Leo Reaction - bài báo nhân dân VU KHỐNG XÚC PHẠM** [https://m.youtube.com/watch?v=GX9th14KV7I](https://m.youtube.com/watch?v=GX9th14KV7I)
   - Email: dualeone (at) gmail.com
   - Email: dualeoteam (at) gmail.com
