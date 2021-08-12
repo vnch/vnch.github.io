@@ -129,13 +129,16 @@
 
 ### News
 
+- **Mụ-Moon-Hèng(hạ)-Hủ(lậu)** ví von dân VN khi đi nhậu thường có người đứng ra bao tiền cho cả bàn nhậu, để chê dân Mỹ chia đều tiền nhậu là không tình nghĩa... đâu khác gì mụ ta CHÊ ***CÁC NƯỚC CỘNG-SẢN, KHI ĐẠI DỊCH KHÔNG ĐÓNG GÓP GÌ HẾT***!!! 
+  - Nhóm G7+NATO ***Mỹ+Anh+Úc+Nhật+Hàn+ChâuÂu*** **đứng ra bao tiền vac-cine**, **bao tiền chống dịch**...mấy tỷ đô tiền hỗ trợ cho các nước đang có dịch, chính VC cũng hốt được mấy trăm triệu đô rồi!!! 
+  - Còn cái **bọn tung-cộng&việt-cộng** không những cố tình lây lan dịch mà còn lợi dụng tăng giá, ăn chặn... từ cái khẩu trang, cho tới giá vac-cine đều cao gấp 3 lần hàng Mỹ+Anh+Úc+Nhật! VC còn lừa tiền dân góp mua vac_cine để gửi vô bank kiếm lời thêm nữa. Vậy là **Mụ-Moon-Hèng(hạ)-Hủ(lậu)** đang chửi đểu VC, hay gì đây???
 - **Vẹm-Thẹo-Phét** chi tiền hay rửa-tiền để mua vac_cine hàng tung-cộng?
 - **Dững Lò Vẹm** là côn-ẳng thứ dữ, **hoa-cải-lên-trời** chính hiệu
   - Điểm yếu của côn-ẳng là bị **Võ Hèng Ênh** dắt mũi & lừa tình cả vợ con
   - Làm hậu cần trong côn-ẳng thì không thể là con dân đen được
   - Gom đất đai giá rẻ làm giàu, rồi vẽ dự án mời tung-cộng tới mở hãng xưởng nhà máy
-- **Mụ-Moon-Hèng-Hủ** lộ rõ bản mặt bợ-đít VC cùng thằng Đũy-Ng-Gymer
-  - Ngày nay, Mụ-Moon-Hèng-Hủ cũng lên chê N10TV nghèo, ít tiền. Suy ra Mụ-Moon-Hèng-Hủ  này đang chê cái tên Hù-Tặc mà mụ đang bợ-đít hồi xưa cũng chỉ sống trong hang, trên răng dưới 2 hòn déo, há há há
+- **Mụ-Moon-Hèng(hạ)-Hủ(lậu)** lộ rõ bản mặt bợ-đít VC cùng thằng Đũy-Ng-Gymer
+  - Ngày nay, Mụ-Moon-Hèng-Hủ cũng lên chê N10TV nghèo, ít tiền. Suy ra Mụ-Moon-Hèng-Hủ  này đang chê cái tên Hồ-Tặc mà mụ đang bợ-đít hồi xưa cũng chỉ sống trong hang, trên răng dưới 2 hòn déo, há há há
   - Lúc trước Đũy-Ng-Gymer cũng chê làm dân chủ nghèo tiền không bằng nó
 
 - "Phản dame" **Đũy-Ng-Gymer**
