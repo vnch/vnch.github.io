@@ -1,4 +1,31 @@
-# PROJECT YÊU-SÁCH-3-ĐẶC-KHU-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
+# PROJECT YÊU-SÁCH-3-ĐẶC-KHU-DÀNH-CHO-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
+
+## ! WARNING ! KẺ NÀO MỚI LÀ CỰC-ĐOAN CHỐNG-NHAU THÙ-DAI HƠN?
+
+- Nhiều năm rồi, VC liên tục cho 47 gây thù với hải ngoại, chê bai chửi bới VNCH. Nhưng ra sức nâng-bi-bưng-bô tung-cộng!
+- Mấy năm rồi, Việt-Cộng đang dâng 3 đặc khu cho tung-cộng 99 năm. Tại sao không cho VNCH thuê 20 năm? "20 năm ... từng ngày. Gia tài của mẹ ..."
+- Hợp tác là tôn trọng lẫn nhau, còn VC thì chỉ cho hồ-kiều bưng-bô-cho-VC mới được đầu tư, lúc nào VC cũng muốn "ta đây cửa trên"! Thử hỏi kẻ nào mới là thù-dai & cực-đoan?
+- **Meme video Bụi Đời Phố Bolsa**: "__Anh bạn, cho tôi b-ú-c-u để giảng hòa, cùng là đồng hương với nhau mà__".../... "__Con-kẹt, bố mày cửa trên, bố mày thích gây lộn thì sao nào__"...
+- **Sóng Gió** (Kẻ nào mới muốn gây ra sóng gió?) "remix nhạc cách mạng": 
+  - Hồng trần trên đôi cánh tay, họa đời em trong phút giây (__chỉ sướng cái giây phút tạo ra ngày 30/4__)... từ ngày thơ (__ngây thơ không biết ai là bạn ai là thù__) ấy còn ngủ mơ (__ngủ mơ trong chiến thắng 30/4 để được gì__) đến khi em thờ ơ (__thờ ơ bỏ mất cơ hội phát triển__)... 
+  - Lòng người ai đâu có hay, một ngày khi vỗ cánh bay (__tung-cộng nó vỗ cánh lên thứ 2 thì nó có chịu giúp đỡ vac-cine không?__)... từ người yêu hóa thành người dưng đến khi ta tự xưng (__bị tung-cộng bỏ rơi thì việt-cộng tự sướng cái gì nữa?__)
+  - Thương em bờ vai nhỏ nhỏi đôi mắt hóa mây đêm... Đời phiêu du cố tìm 1 người thật lòng (__giờ thì Mỹ hay tung-cộng ai mới thật lòng hơn đây, thấm chưa?__)
+  - Chim kia về vẫn có đôi sao chẳng số phu thê. Em ơi đừng xa cách tôi trăng cố níu em về.
+    - (__giờ VC muốn được Mỹ níu về hay vẫn còn ngây thơ__)
+  - Bình yên trên mái nhà nhìn đời ngược dòng, em còn bên anh có phải không?
+    - (__VC thích ngược dòng để đi bưng bô cho tung-cộng?__)
+  - Trời ban ánh sáng năm tháng tứ bề, dáng ai về chung lối
+    - (__đã bán anh sáng hòn ngọc viễn đông rồi, mà VC không biết đi đánh phá, giờ tiền đứng bét ĐNÁ__)
+  - Người mang tia nắng nhưng cớ sao còn tâm tối
+    - (__3 tia nắng trên nền vàng bị bọn VC nó làm cho tối tăm luôn rồi__)
+  - Một mai em lỡ vấp ngã trên đời thay đổi, nhìn về anh, người chẳng khiến em lẻ loi
+    - (__VC vấp cái co-vid-21 giờ muốn vac-cine Mỹ hay hàng tàu?__)
+  - Nhặt một nhành hoa rơi, đoạn đường về nhà thật buồn em ơi
+    - (__VC mót nhặt được vac-cine Pfizer&Moderna mà khoe tiêm cho COCC để bị dân chửi, về nhà ông ngoại buồn chưa?__)
+  - Dòng người vội vàng giờ này tình ơi tình ơi em ở đâu rồi
+    - (__sao VC vội vàng theo Mỹ quá, để thằng tung cộng nó đi tìm kìa__)
+  - Lặng nhìn bờ vai xưa, tựa đầu mình hỏi rằng khổ chưa?
+    - (__sao rồi, VC giờ còn muốn nhìn bơ vai xưa của tung-cộng nữa không? Sướng không muốn cứ muốn khổ hay sao?__)
 
 ## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
 
