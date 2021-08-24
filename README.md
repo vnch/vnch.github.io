@@ -156,8 +156,18 @@
 
 ### News
 
+- Phim lậu (phimmoi) và môi trường **Cộng-Sản-Hoang-Dã**
+  - Dân VC cố tình chia sẻ lậu nhiều để thể hiện ghét tư bản
+  - Ví dụ nếu bật subtitle khi coi youtube, sẽ thấy chỉ có tiếng Việt là rất hay chèn tên người dịch & nhóm dịch ngay chính trong text
+  - Tại sao người dịch subtitles họ lại làm vậy? Là bởi vì bọn VC nó chuyên đi chôm lấy subtitles đã dịch để chèn vô các phim chiếu lậu!
+  - Đặc biệt nhất là bọn VC làm phim lậu nó không bao giờ donate cho người dịch subtitles, dù bọn nó thu tiền quảng cáo tiền tỷ!
+  - Đây chính là môi-trường-hoang-dã điển hình do bọn VC tạo nên, bọn nó cố tình tạo ra! Vừa triệt tiêu động lực người dịch tiếng Anh, vừa phá "phim tư bản"!
+
+- Hải ngoại bị bọn VC dắt mũi làm không công. Ví dụ kênh N10TV hay ngồi đưa ra cách chống dịch, nhưng sẽ bị bọn VC đưa lên báo: "thể hiện bề trên dạy cách chống dịch", "học chưa hết lớp 7...", chứ chúng nhất định không bao giờ cảm ơn vì chúng thù phe đối lập!
+  - VC sẵn sàng chi tiền ngân sách cho Côn-Ẵng gấp 10 lần Y tế!
+
 - **Mụ-Moon-Hèng(hạ)-Hủ(lậu)** ví von dân VN khi đi nhậu thường có người đứng ra bao tiền cho cả bàn nhậu, để chê dân Mỹ chia đều tiền nhậu là không tình nghĩa... đâu khác gì mụ ta CHÊ ***CÁC NƯỚC CỘNG-SẢN, KHI ĐẠI DỊCH KHÔNG ĐÓNG GÓP GÌ HẾT***!!! 
-  - Nhóm G7+NATO ***Mỹ+Anh+Úc+Nhật+Hàn+ChâuÂu*** **đứng ra bao tiền vac-cine**, **bao tiền chống dịch**...mấy tỷ đô tiền hỗ trợ cho các nước đang có dịch, chính VC cũng hốt được mấy trăm triệu đô rồi!!! 
+  - Nhóm G7+NATO ***Mỹ+Anh+Úc+Nhật+Hàn+ChâuÂu*** **đứng ra bao tiền vac-cine**, **bao tiền chống dịch**... mấy tỷ đô tiền hỗ trợ cho các nước đang có dịch, chính VC cũng hốt được mấy trăm triệu đô rồi!!! 
   - Còn cái **bọn tung-cộng&việt-cộng** không những cố tình lây lan dịch mà còn lợi dụng tăng giá, ăn chặn... từ cái khẩu trang, cho tới giá vac-cine đều cao gấp 3 lần hàng Mỹ+Anh+Úc+Nhật! VC còn lừa tiền dân góp mua vac_cine để gửi vô bank kiếm lời thêm nữa. Vậy là **Mụ-Moon-Hèng(hạ)-Hủ(lậu)** đang chửi đểu VC, hay gì đây???
 - **Vẹm-Thẹo-Phét** chi tiền hay rửa-tiền để mua vac_cine hàng tung-cộng?
 - **Dững Lò Vẹm** là côn-ẳng thứ dữ, **hoa-cải-lên-trời** chính hiệu
