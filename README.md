@@ -6,7 +6,7 @@
 - Mấy năm rồi, Việt-Cộng đang dâng 3 đặc khu cho tung-cộng 99 năm. Tại sao không cho VNCH thuê 20 năm? "20 năm ... từng ngày. Gia tài của mẹ ..."
 - Hợp tác là tôn trọng lẫn nhau, còn VC thì chỉ cho hồ-kiều bưng-bô-cho-VC mới được đầu tư, lúc nào VC cũng muốn "ta đây cửa trên"! Thử hỏi kẻ nào mới là thù-dai & cực-đoan?
 - **Meme video Bụi Đời Phố Bolsa**: "__Anh bạn, cho tôi b-ú-c-u để giảng hòa, cùng là đồng hương với nhau mà__".../... "__Con-kẹt, bố mày cửa trên, bố mày thích gây lộn thì sao nào__"...
-- CÀ-KHỊA **Sóng Gió** (Kẻ nào mới muốn gây ra sóng gió?), cà khịa lại bài "Sóng Gió remix nhạc cách mạng": 
+- CÀ-KHỊA **Sóng Gió** (Kẻ nào mới muốn gây ra sóng gió?), cà khịa lại bài "Sóng Gió remix nhạc cách mạng b-ợ-đ-í-t-VC": 
   - Hồng trần trên đôi cánh tay, họa đời em trong phút giây (__chỉ sướng cái giây phút tạo ra ngày 30/4__)... từ ngày thơ (__ngây thơ không biết ai là bạn ai là thù__) ấy còn ngủ mơ (__ngủ mơ trong chiến thắng 30/4 để được gì__) đến khi em thờ ơ (__thờ ơ bỏ mất cơ hội phát triển__)... 
   - Lòng người ai đâu có hay, một ngày khi vỗ cánh bay (__tung-cộng nó vỗ cánh lên thứ 2 thì nó có chịu giúp đỡ vac-cine không?__)... từ người yêu hóa thành người dưng đến khi ta tự xưng (__bị tung-cộng bỏ rơi thì việt-cộng tự sướng cái gì nữa?__)
   - Thương em bờ vai nhỏ nhỏi đôi mắt hóa mây đêm... Đời phiêu du cố tìm 1 người thật lòng (__giờ thì Mỹ hay tung-cộng ai mới thật lòng hơn đây, thấm chưa?__)
