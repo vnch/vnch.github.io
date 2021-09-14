@@ -1,5 +1,16 @@
 # PROJECT YÊU-SÁCH-3-ĐẶC-KHU-DÀNH-CHO-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
+### Việt~Cộng là thằng chồng say rượu, đánh vợ đập con (đánh dân đen)
+
+- Ra rả tiến lên XHCN & CS, nhưng hỏi khi nào thì nói không biết lúc nào. 
+- Rõ ràng Việt~Cộng là thằng say rượu mới nói kiểu ảo tưởng như vậy thôi!!!
+
+### Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
+
+- "Chị vợ" muốn chống lại "tên chồng bạo hành" trong gia đình của họ, thì cũng phải nhờ tới bên ngoài can thiệp. Khó có thể chờ đợi cho tên chồng bạo hành thay đổi khi quyền nó nắm trong tay! Chấp chị vợ nó kêu gào, khóc lóc, van xin... thì hắn cũng không bao giờ thay đổi!
+- 2 vợ chồng sống trong 1 gia đình, nam-nữ (đực-cái) đặc tính sinh học là không giống nhau. Việt-Cộng thì không muốn sống chung với tư tưởng khác, luôn tìm cách tiêu diệt tư tưởng khác với chúng! Việt-Cộng chính tên chồng bạo hành luôn muốn áp đặt lên chị vợ, bắt chị vợ phải răm rắp nghe theo.
+- Bọn cầm quyền ở VN hiện nay liệu có phải là dân Việt, hay toàn là Tung-Cộng đội lốt và bị mua chuộc? Bọn Việt-Cộng này đã biến thành "tên chồng bạo hành", rất gian ác, rất hám danh, rất hám lợi và rất hám quyền. Dân là "chị vợ" ở thế yếu mà không có trợ giúp ở ngoài thì muốn đời không làm gì được lũ Việt-Cộng!
+
 ## ! WARNING ! KẺ NÀO MỚI LÀ CỰC-ĐOAN CHỐNG-NHAU THÙ-DAI HƠN?
 
 - Nhiều năm rồi, VC liên tục cho 47 gây thù với hải ngoại, chê bai chửi bới VNCH. Nhưng ra sức nâng-bi-bưng-bô tung-cộng!
@@ -80,18 +91,6 @@
 - Chỉ xứ VC mới có cái trò lấy source của người khác, rồi xóa tên tác giả để thể hiện, để lập công.
 - Open source là thể hiện sự VĂN MINH CÔNG KHAI & MINH BẠCH, chứ không phải cái trò trộm cắp, cướp công như bọn VC CS lấy làm của công, rồi đá tác giả sống nghèo đói.
 - Người làm open source coi đó như là viết tiểu-thuyết/tác-phẩm-nghệ-thuật. Chỉ có bè lũ VC & CS mới có trò chép tiểu-thuyết/tác-phẩm-nghệ-thuật của người khác rồi xóa tên tác giả để ghi tên chúng nó thay thế!
-
-### HỘI CHỨNG "HẢI NGOẠI KHÔNG MUỐN LẬT ĐỔ VC"?
-
-- Tại sao 45 năm không lật được bọn VC? Có phải là do chưa làm hết mình?
-- Có phải để VC tồn tại mới có bài vở, đưa tin ở các đài BBC, VOA, RFA...
-- Nhờ VC tồn tại mới có các Facebooker, Youtuber đưa tin live streaming mỗi ngày?
-
-### HỘI CHỨNG HẢI NGOẠI CUỒNG TỔNG THỐNG MỸ, CUỒNG LÃNH TỤ...
-
-- Nền Dân Chủ là PLATFORM (ECOSYSTEM), cần được sửa lỗi thường xuyên, chớ không phải lúc nào cũng đúng, lúc nào cũng số 1, lúc nào cũng muôn năm...
-- Nền Dân Chủ là PLATFORM (ECOSYSTEM), chớ không phải là một bộ phim, các diễn viên... để phải cuồng, hâm mộ thái quá
-- Các Youtuber hải ngoại rất hay bị hội chứng này CUỒNG TỔNG THỐNG MỸ (CUỒNG LÃNH TỤ)! Chỉ làm kiểu đưa tin tức, đưa bình luận... mà không có tác động gì tới chánh trường để góp phần tiêu diệt bọn Việt-Cộng và Tung-Cộng!!!
 
 #### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
 
@@ -235,12 +234,6 @@
 - Việt-Cộng thực hiện chặn mạng, xóa mạng internet Facebook & Youtube, thì Việt-Cộng chính là kẻ trùm bạo hành với dân trong nước. Dân Việt bắt buộc phải nhờ bên ngoài can thiệp trợ giúp, chứ không thể nào tự cứu được!
 - Trong một KHU PHỐ, có nhiều gia đình, có một gia đình có cha mẹ đánh đập bạo hành con cái của chính họ. Theo "lý luận của VC & Tung-Cộng", thì các nhà hàng xóm không nên can thiệp chuyện nội bộ của gia đình đang bạo hành trẻ em kia! Đó là chuyện nội bộ của gia đình đó!
 - Trên một TRÁI ĐẤT, nhiều quốc gia xả thải kỹ nghệ cũ làm ô nhiễm bầu khí quyển. Theo "lý luận của VC & Tung-Cộng" thì các quốc gia khác không nên can thiệp chuyện xả thải nội bộ của các quốc gia đang xả thải!!! Đó là chuyện nội bộ của quốc gia đang xả thải! Trái Đất là nội bộ của Vũ Trụ chứ không phải của các quốc gia ý kiến đòi bảo vệ môi trường nhá!
-
-### Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
-
-- "Chị vợ" muốn chống lại "tên chồng bạo hành" trong gia đình của họ, thì cũng phải nhờ tới bên ngoài can thiệp. Khó có thể chờ đợi cho tên chồng bạo hành thay đổi khi quyền nó nắm trong tay! Chấp chị vợ nó kêu gào, khóc lóc, van xin... thì hắn cũng không bao giờ thay đổi!
-- 2 vợ chồng sống trong 1 gia đình, nam-nữ (đực-cái) đặc tính sinh học là không giống nhau. Việt-Cộng thì không muốn sống chung với tư tưởng khác, luôn tìm cách tiêu diệt tư tưởng khác với chúng! Việt-Cộng chính tên chồng bạo hành luôn muốn áp đặt lên chị vợ, bắt chị vợ phải răm rắp nghe theo.
-- Bọn cầm quyền ở VN hiện nay liệu có phải là dân Việt, hay toàn là Tung-Cộng đội lốt và bị mua chuộc? Bọn Việt-Cộng này đã biến thành "tên chồng bạo hành", rất gian ác, rất hám danh, rất hám lợi và rất hám quyền. Dân là "chị vợ" ở thế yếu mà không có trợ giúp ở ngoài thì muốn đời không làm gì được lũ Việt-Cộng!
 
 ### Nghiệp của Việt-Cộng 2020-2030
 
