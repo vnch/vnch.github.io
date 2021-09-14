@@ -5,6 +5,10 @@
 - Ra rả tiến lên XHCN & CS, nhưng hỏi khi nào thì nói không biết lúc nào. 
 - Rõ ràng Việt~Cộng là thằng say rượu mới nói kiểu ảo tưởng như vậy thôi!!!
 
+### Việt~Cộng chi ngân sách nuôi lũ Côn-Ẳng nhiều gấp 10 lần cho Y Tế (Sức Khỏe) & Giáo Dục
+    + Là do Việt~Cộng muốn Côn-Ẳng làm việc kiểu nghe lời vì đồng tiền, chứ đâu phải vì chế độ hay lý tưởng gì nữa!
+    + Việt~Cộng lúc nào cũng khoe tư tưởng, quân đội cũng phải theo tư tưởng Việt~Cộng, nhưng giờ lại xấu hổ bảo vệ chế độ theo cách tăng lương bằng đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị!
+
 ### Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
 
 - "Chị vợ" muốn chống lại "tên chồng bạo hành" trong gia đình của họ, thì cũng phải nhờ tới bên ngoài can thiệp. Khó có thể chờ đợi cho tên chồng bạo hành thay đổi khi quyền nó nắm trong tay! Chấp chị vợ nó kêu gào, khóc lóc, van xin... thì hắn cũng không bao giờ thay đổi!
