@@ -85,9 +85,11 @@
   - Donate: https://www.patreon.com/dualeone
   - Momo: 0932539510, Nguyễn Lê Minh Ngọc
   - VCB: 0441003723804, Nguyễn Lê Minh Ngọc
-- [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/1/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
-  - Năm 2021, Hùng-Trọc-b-ợ-đ-í-t-VC đã hết dám để video VC chửi bậy, đã xóa các video chửi hải ngoại. Nhưng lại được Mụ-Moon-Hèng-Hủ-Lậu nâng bi hâm mộ, thật không thể tin nổi cái đám b-ợ-đ-í-t-VC, quá trơ trẽn!
+
 - [x] Doanh nhân **Trịnh Vĩnh Bình (Vua chả giỏ) đã thắng kiện bọn VC**. VC là chuyên đi phá hoại kinh doanh sản xuất!
+- [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/1/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
+  - Năm 2021, **doanh nhân Phil Đồng Canada (youtuber chỉ là nghề phụ) đã xử đẹp** tên Hùng-Trọc-b-ợ-đ-í-t-VC, tên VC này không dám nhắc tới doanh nhân Phil Đồng chút nào, còn đi mách lẻo với Mụ~Hằng, nhưng Mụ~Hằng vẫn không dám đấu với doanh nhân Phil Đồng Canada :)
+  - Năm 2021, Hùng-Trọc-b-ợ-đ-í-t-VC đã hết dám để video VC chửi bậy, đã xóa các video chửi hải ngoại. Nhưng lại được Mụ~Moon~Hèng~Hủ~Lậu nâng bi hâm mộ, thật không thể tin nổi cái đám b-ợ-đ-í-t-VC, quá trơ trẽn!
 
 ## OPEN SOURCE LÀ CÔNG KHAI & MINH BẠCH, KHÔNG PHẢI LÀ CỘNG-SẢN!
 
