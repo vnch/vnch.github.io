@@ -39,7 +39,7 @@
   - Một mai em lỡ vấp ngã trên đời thay đổi, nhìn về anh, người chẳng khiến em lẻ loi
     - (__VC vấp cái co-vid-21 giờ muốn vac-cine Mỹ hay hàng tàu?__)
   - Nhặt một nhành hoa rơi, đoạn đường về nhà thật buồn em ơi
-    - (__VC mót nhặt được vac-cine Pfizer&Moderna mà khoe tiêm cho COCC để bị dân chửi, về nhà ông ngoại buồn chưa?__)
+    - (__VC mót nhặt được vac-cine Pfizer&Moderna mà khoe tiêm cho COCC để bị dân chửi, về nhà ông ngoại buồn chưa?__ **Trẻ trâu Dương~Đức~Thẹo giựt xé là cờ vàng VNCH Việt Nam Cộng Hòa ở Úc Đại Lợi**)
   - Dòng người vội vàng giờ này tình ơi tình ơi em ở đâu rồi
     - (__sao VC vội vàng theo Mỹ quá, để thằng tung cộng nó đi tìm kìa__)
   - Lặng nhìn bờ vai xưa, tựa đầu mình hỏi rằng khổ chưa?
@@ -59,6 +59,80 @@
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải nhường gái đẹp cho các lãnh-địu-VC cưới 2-3 vợ
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải sống khổ cách ly khi đại dịch, để lãnh-địu-VC giàu sang ở nhà dư thừa đồ ăn, vac_cine hàng Mỹ loại xịn, tiêm 3 mũi trong tầm tay!
 - **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải **mang danh phản động** còn, lãnh-địu-VC thì vô tư hợp thức hóa **3 đặc khu bán đất 99 năm** cho tung-cộng, còn người anh em VNCH thì chúng nó nhất định tiêu diệt!
+
+
+## NHỮNG NGƯỜI HÙNG LIVESTREAMING ĐÃ LÀM Việt~Cộng SỢ HÃI
+
+- **( Việt~Cộng sợ nhất những gì chúng nó không nhìn thấy được!!! Thậm chí người làm video công khai, lũ VC cũng sợ hãi tìm cách chặn cấm phát ở Vietnam )**
+- **( Mỗi người hùng backup cho 10 bạn làm bí mật, thì lũ VC sẽ sợ té đái, lo sợ suốt ngày, ăn không ngon ngủ không yên!!! )**
+- **( Vì quá sợ hãi, nên Việt~Cộng phải "đề nghị" "yêu cầu" (van xin?) Đại Sứ Quán Mỹ USA phải xây ở Hanoi, để đi Mỹ cho nhanh khi có biến, khi dân nổi can qua??? )**
+
+### Hải ngoại
+
+- (LIVESTREAMING) **Trương Quốc Huy N10Tv** (bị Mụ~Hằng & VCNằmVùngHảiNgoại chửi rủa, chỉ làm 1 video đáp trả Mụ~Hằng, rồi xong???)
+- (LIVESTREAMING) **Doanh nhân, thạc sĩ Phil Đồng ~ Bác Hù channel (cà khịa gọi hồn hồ~tặc)** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám nhắc tới Doanh nhân Phil Đồng nửa lời)
+  - __Tại sao ở xứ Việt~Cộng chỉ có tên đường Tất Thành, mà không có tên đường Ái-Quốc__
+  - __Rõ ràng lũ Việt~Cộng muốn tẩy não chỉ cần đạt được mục đích (tất thành), chứ không cần yêu nước (ái quốc), sẵn sàng hoàn thành giao nộp cho bọn tung~cộng__
+- (LIVESTREAMING) **Sean Le ~ Lính Mỹ gốc Việt** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
+- (LIVESTREAMING, Bị VCNằmVùngHảiNgoại chửi rủa) **Kỹ sư IT (điện toán) Quân Trương** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
+- (LIVESTREAMING) **Mrs. Rachel Quý** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
+- (LIVESTREAMING, PAUSED) **Kỹ sư Hoàng Ngọc Diêu (điện toán), (Bất Tuân Dân Sự & Bất Bạo Động), (vạch mặt tượng đài hồ~tặc)**
+
+- (LIVESTREAMING) **Lisa Phạm**
+- (LIVESTREAMING) **Nữ~Luật~Sư Trần Kiều Ngọc**
+- (PAUSED, Bị VCNằmVùngHảiNgoại chửi rủa tới 2 videos) **Nữ~Tiến~Sĩ Trần Thị Ái Liên**
+- (LIVESTREAMING, Bị VCNằmVùngHảiNgoại chửi rủa) **Mẹ Nấm (Nguyễn Ngọc Như Quỳnh)**
+- (LIVESTREAMING) **Anh Chi (Paris, France)**
+- (LIVESTREAMING) **Đoàn Thị Thùy Dương**
+- (LIVESTREAMING) Tạ Phong Tần (từng là công an VC, đã định cư Mỹ)
+
+- (LIVESTREAMING) Huy Đức Thần Sấm Sét
+- (LIVESTREAMING) Tan Thai
+- (LIVESTREAMING) Đạo diễn Trần Nhật Phong
+- (LIVESTREAMING) Ký giả Huỳnh Quốc Huy
+
+- (Bị VCNằmVùngHảiNgoại chửi rủa) Giáo sư Toán học Ngô Bảo Châu
+- (Bị VCNằmVùngHảiNgoại chửi rủa) Luật sư Nguyễn Văn Đài
+- (Bị VCNằmVùngHảiNgoại chửi rủa) Linh Mục Đặng Hữu Nam
+- (Bị VCNằmVùngHảiNgoại chửi rủa) Tùng Lê
+- (Bị VCNằmVùngHảiNgoại chửi rủa) Hà Văn Sơn
+- (Bị VCNằmVùngHảiNgoại chửi rủa) Đỗ Ngọc Thống
+
+- (BROADCASTING) SBTN ~ ĐỌC BÁO VẸM ~ Bác Hoàng Tuấn và bác Nguyên Khôi ~
+- (BROADCASTING) Đài Á Châu Tự Do RFA Việt Ngữ
+- (BROADCASTING) Đài Tiếng Nói Hoa Kỳ VOA Việt Ngữ
+- (BROADCASTING) BBC Việt Ngữ
+- (BROADCASTING) Báo Người Việt
+- (LIVESTREAMING) ~ thoibao.de ~
+
+- (LIVESTREAMING) Sư thầy Thích Thông Lai
+- (LIVESTREAMING) Chánh khách Phạm Văn Thành
+- (LIVESTREAMING) Mã Tiểu Linh
+- (LIVESTREAMING) Rose Đào
+- Nhà văn Dương Thu Hương
+- MC Thanh Tâm
+- Luật sư Cù Huy Hà Vũ
+- Điếu Cày (Nguyễn Văn Hải)
+- Người Buôn Gió (Bùi Thanh Hiếu)
+- (PAUSED, Vlogger) Bắc Kỳ 9 Nút
+
+### Quốc nội
+
+- (LIVESTREAMING) **Thấy giáo Dương Tuấn Ngọc (Toán Học)**
+- (LIVESTREAMING) **Dưa Leo (Nguyễn Phúc Gia Huy) (Cử Nhân Kinh Tế)**
+- (LIVESTREAMING) **Anh Chí Râu**
+- (Nữ BLOGGER) **Huỳnh Thục Vy**
+
+- **Kĩ sư Trần Huỳnh Duy Thức (điện toán)**
+- Luật sư Lê Công Định
+- Nhà báo Phạm Đoan Trang
+- Nhạc sỹ Tuấn Khanh
+- Chuyên gia kinh tế Phạm Chi Lan
+- Nhà sử học Dương Trung Quốc
+- Tiến sĩ Nguyễn Quang A
+- Nhà báo Trương Duy Nhất
+- Anh Ba Sàm (Nguyễn Hữu Vinh) (từng là công an)
+
 
 ![saigon-phone-logo](/public/static/images/saigon-phone.png)
 
