@@ -2,12 +2,15 @@
 
 ### Việt~Cộng là thằng chồng say rượu, đánh vợ đập con (đánh dân đen)
 
-- Ra rả tiến lên XHCN & CS, nhưng hỏi khi nào thì nói không biết lúc nào. 
-- Rõ ràng Việt~Cộng là thằng say rượu mới nói kiểu ảo tưởng như vậy thôi!!!
+- Ra rả tiến lên XHCN & CS, nhưng hỏi khi nào **thì nói không biết lúc nào (chưa biết đến hết thế kỷ 21 có tới được không)**!!!
+- Rõ ràng **Việt~Cộng là thằng say rượu** mới nói kiểu **ảo tưởng & lì lượm** như vậy thôi!!!
+- Việt~Cộng say rượu còn ảo tưởng **dẫn tất cả xuống hố**, ai không theo thì nó còn bắt ép phải theo **(nhưng dân phải nhảy xuống hố trước, còn VC nó đứng trên bờ)**!!!
 
 ### Việt~Cộng chi ngân sách nuôi lũ Côn-Ẳng nhiều gấp 10 lần cho Y Tế (Sức Khỏe) & Giáo Dục
-    + Là do Việt~Cộng muốn Côn-Ẳng làm việc kiểu nghe lời vì đồng tiền, chứ đâu phải vì chế độ hay lý tưởng gì nữa!
-    + Việt~Cộng lúc nào cũng khoe tư tưởng, quân đội cũng phải theo tư tưởng Việt~Cộng, nhưng giờ lại xấu hổ bảo vệ chế độ theo cách tăng lương bằng đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị!
+
+- Là do Việt~Cộng muốn Côn-Ẳng làm việc kiểu **nghe lời vì đồng tiền**, chứ đâu phải vì chế độ hay lý tưởng gì nữa!
+- Việt~Cộng lúc nào cũng khoe tư tưởng, **quân đội cũng phải theo tư tưởng Việt~Cộng**, nhưng giờ lại xấu hổ bảo vệ chế độ theo cách **đấp tiền bằng đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị**!
+- VC đang đấp mộ chế độ bằng **đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị**
 
 ### Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
 
@@ -64,21 +67,28 @@
 | Chấp VC mở 3 khu cho tung-cộng luôn. Cạnh tranh thử coi đặc khu nào được nhiều dân Việt chào đón nhất. | **Nếu VC không bị lừa tạo ra ngày 30/4** |
 | VNCH đặc khu hay Tung-cộng đặc khu? **Người Việt sẽ chọn khu nào để sống, học tập và làm ăn?** | Người Việt chọn SAIGON-PHONE hay SAMSUNG? |
 | ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.2.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.2.jpg) |
-| Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Chỉ có VC bơm vô đầu dân "để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"!!! | ![saigon-phone-tesla-gigafactory](/public/static/images/saigon-phone-tesla-gigafactory.png) |
+| Ông Bụt Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Chỉ có VC bơm vô đầu dân "để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"!!! | ![saigon-phone-tesla-gigafactory](/public/static/images/saigon-phone-tesla-gigafactory.png) |
 
 ## [JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG](/JOIN-US.md)
 
-### Nhóm QUỐC-CƯỜNG Tuổi Trẻ Quốc Nội + CHỐNG Việt-Cộng Độc Quyền Tư Tưởng!!!
+### Nhóm QUỐC-CƯỜNG Tuổi Trẻ Quốc Nội + CHỐNG Việt~Cộng Độc Quyền Tư Tưởng!!!
 
-1. [KHÔNG YÊU CẦU DANH TÁNH, để tránh bị gài bẫy, bị làm mồi cho Việt-Cộng lập công](/JOIN-US.md#khong-yeu-cau-danh-tanh)
-2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC!](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
-3. [ĐẤU TRANH THẬT SỰ THÌ PHẢI KHÔNG ĐỂ BỊ BẮT, KHÔNG CHO BỌN Việt-Cộng LẬP CÔNG, KHÔNG CHO Việt-Cộng ĐEM TÙ NHÂN CHÁNH TRỊ (TÙ NHÂN LƯƠNG TÂM) RA TRAO ĐỔI LẤY LỢI ÍCH HIỆP ĐỊNH THƯƠNG MẠI!](/JOIN-US.md#khong-de-bon-vc-lap-cong-trao-doi-tu-nhan)
+1. [KHÔNG YÊU CẦU DANH TÁNH, để tránh bị gài bẫy, bị làm mồi cho Việt~Cộng lập công](/JOIN-US.md#khong-yeu-cau-danh-tanh)
+2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC! ~ý tưởng mới, không phải Bất~Tuân~Dân~Sự~](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
+3. [ĐẤU TRANH THẬT SỰ THÌ PHẢI KHÔNG ĐỂ BỊ BẮT, KHÔNG CHO BỌN Việt~Cộng LẬP CÔNG, KHÔNG CHO Việt~Cộng ĐEM TÙ NHÂN CHÁNH TRỊ (TÙ NHÂN LƯƠNG TÂM) RA TRAO ĐỔI LẤY LỢI ÍCH HIỆP ĐỊNH THƯƠNG MẠI!](/JOIN-US.md#khong-de-bon-vc-lap-cong-trao-doi-tu-nhan)
+4. (Theo platform nền~tảng P2P) **KHÔNG XÉT LÝ LỊCH! KHÔNG PHÂN BIỆT ĐẢNG PHÁI! KHÔNG PHÂN BIỆT tiền tài nguyên của HảiNgoại hay VC!** DÙNG TIỀN CỦA Việt~Cộng ĐÃ CƯỚP CỦA DÂN ĐỂ TRẢ LẠI CHO DÂN LÀ ĐÚNG ĐẮN, KHÔNG CÓ GÌ PHẢI XẤU HỔ!
+5. [**Cẩm nang** đấu trí với bọn Việt~Cộng từ chóp~bu cho tới rau~râm](/1/cam-nang/tra-loi-dlv.md)
 
 ## DIỆT CỘNG, KHỞI KIỆN VIỆT CỘNG
 
 - [ ] Youtuber Dưa Leo (Nguyễn Phúc Gia Huy) đang khởi kiện bọn báo-nhân-dân của bọn VC
   - Năm 2021, Dưa Leo than khóc vì bị Facebook bịt miệng (phải "đi tu" trong 30 ngày vì status bị report). Đây tiếp tục là một ví dụ vì chê dự án chúng tôi đã nêu từ năm 2019: **Kiến nghị Facebook sửa lại cách hoạt động của Community Standards** (đã đăng trên Reddit)
     - Cái "sân khấu Facebook" có scaffold quá tệ. Biểu diễn nhưng lại không góp ý chỉnh sửa platform, cứ lo cắm đầu vô đó biểu diễn thì bị nó Facebook vật là phải rồi, còn gì nữa đâu mà khóc với sầu!
+  - Năm 2021, Youtuber Dưa Leo không hiểu sao lại dính lỗi ngụy biện công kích cá nhân: 
+    - **"Các em đã làm được kênh Youtube 800K subs như anh chưa, mà đòi nói anh phải làm video kiểu này kiểu kia"**
+    - Sao nghe giống bọn Việt~Cộng Ché~Đỏ~Liếm~Bùa ngụy biện quá: 
+      - **"Đã đóng góp gì cho đất nước chưa, mà đòi góp ý, ý kiến ý cò"**
+      - **"Nghèo... ăn rau mà đòi bàn chuyện chính trị chính em"**
   - **Dưa Leo Reaction - bài báo nhân dân VU KHỐNG XÚC PHẠM** [https://m.youtube.com/watch?v=GX9th14KV7I](https://m.youtube.com/watch?v=GX9th14KV7I)
   - Email: dualeone (at) gmail.com
   - Email: dualeoteam (at) gmail.com
@@ -194,7 +204,7 @@
     - "Nhục chưa" là câu nói cửa miệng của Đũy-Ng-Gymer trong các videos. Ông HCM có nhục chưa???
     - Nếu ông HCM sống ở thời đại này, thì chắc chắn sẽ bị Đũy-Ng-Gymer chửi SML trên các live stream của anh ta vì không giàu bằng anh ta!
 
-- Mụ-Moon-Hèng-Hủ & Hít-cơ Nhâm-Gia-Lẹo
+- Mụ-Moon-Hèng-Hủ & Hít-cơ Nhâm Hèn Khàn
   - Mụ-Moon-Hèng-Hủ là con bài đánh lạc hướng dư luận để bọn VC bầu bán quan chức đại hội lên đồng
   - Hít-cơ Nhâm-Gia-Lẹo là dạng rau-răm hoang tưởng, tìm mấy cái bài thơ rồi thẩm-du cho rằng có-phẻn-động, phẻn-động đang âm mưu ra ám hiệu. Cái lùm mía, cười té ghế với thằng hít-cơ hoang tưởng này.
 
