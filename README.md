@@ -153,6 +153,11 @@
 4. (Theo platform nền~tảng P2P) **KHÔNG XÉT LÝ LỊCH! KHÔNG PHÂN BIỆT ĐẢNG PHÁI! KHÔNG PHÂN BIỆT tiền tài nguyên của HảiNgoại hay VC!** DÙNG TIỀN CỦA Việt~Cộng ĐÃ CƯỚP CỦA DÂN ĐỂ TRẢ LẠI CHO DÂN LÀ ĐÚNG ĐẮN, KHÔNG CÓ GÌ PHẢI XẤU HỔ!
 5. [**Cẩm nang** đấu trí với bọn Việt~Cộng từ chóp~bu cho tới rau~râm](/1/cam-nang/tra-loi-dlv.md)
 
+## Mô hình **GAME MODDING (Fan-made mods)**
+  - Các hãng game rất trân trọng những Fan-made mods!
+  - Các livestreamers văn hóa phương Tây đều trân trọng đóng góp của fans, kể cả là những comments nhỏ nhất, thậm chí còn có trò chơi theo chỉ dẫn của comments, 1 ngày sống theo votes...
+  - **Tại sao đa số Youtubers bây giờ lại quá tự cao tự đại??? Giả đò hay cố tình để gây chia rẽ, làm nản chí nhiều bạn trẻ quốc nội??????**
+
 ## DIỆT CỘNG, KHỞI KIỆN VIỆT CỘNG
 
 - [ ] Youtuber Dưa Leo (Nguyễn Phúc Gia Huy) đang khởi kiện bọn báo-nhân-dân của bọn VC
@@ -163,6 +168,7 @@
     - Sao nghe giống bọn Việt~Cộng Ché~Đỏ~Liếm~Bùa ngụy biện quá: 
       - **"Đã đóng góp gì cho đất nước chưa, mà đòi góp ý, ý kiến ý cò"**
       - **"Nghèo... ăn rau mà đòi bàn chuyện chính trị chính em"**
+
   - **Dưa Leo Reaction - bài báo nhân dân VU KHỐNG XÚC PHẠM** [https://m.youtube.com/watch?v=GX9th14KV7I](https://m.youtube.com/watch?v=GX9th14KV7I)
   - Email: dualeone (at) gmail.com
   - Email: dualeoteam (at) gmail.com
