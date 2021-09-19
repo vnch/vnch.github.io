@@ -20,7 +20,6 @@
     - Thậm chí nếu không ai muốn đấu tranh nữa thì Việt~Cộng sẽ mướm cho đấu (đưa đạn cho bắn), rồi lấy tiền ngân sách ra đi nhậu với các bigtechs (Youtube, Facebook) để chặn xóa
     - Việt~Cộng nó ghiền bắt đối lập mà, không có đối lập thì lấy gì lũ nó lập công, khoe thành tích
 
-
 ### [Debate / Tranh Luận] Việt~Cộng là thằng chồng say rượu, đánh vợ đập con (đánh dân đen)
 
 - Ra rả tiến lên XHCN & CS, nhưng hỏi khi nào **thì nói không biết lúc nào (chưa biết đến hết thế kỷ 21 có tới được không)**!!!
@@ -35,36 +34,43 @@
 
 ### [Debate / Tranh Luận] Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
 
-- "Chị vợ" muốn chống lại "tên chồng bạo hành" trong gia đình của họ, thì cũng phải nhờ tới bên ngoài can thiệp. Khó có thể chờ đợi cho tên chồng bạo hành thay đổi khi quyền nó nắm trong tay! Chấp chị vợ nó kêu gào, khóc lóc, van xin... thì hắn cũng không bao giờ thay đổi!
-- 2 vợ chồng sống trong 1 gia đình, nam-nữ (đực-cái) đặc tính sinh học là không giống nhau. Việt-Cộng thì không muốn sống chung với tư tưởng khác, luôn tìm cách tiêu diệt tư tưởng khác với chúng! Việt-Cộng chính tên chồng bạo hành luôn muốn áp đặt lên chị vợ, bắt chị vợ phải răm rắp nghe theo.
-- Bọn cầm quyền ở VN hiện nay liệu có phải là dân Việt, hay toàn là Tung-Cộng đội lốt và bị mua chuộc? Bọn Việt-Cộng này đã biến thành "tên chồng bạo hành", rất gian ác, rất hám danh, rất hám lợi và rất hám quyền. Dân là "chị vợ" ở thế yếu mà không có trợ giúp ở ngoài thì muốn đời không làm gì được lũ Việt-Cộng!
+- "Chị vợ" muốn chống lại "tên chồng bạo hành" trong gia đình của họ, thì cũng phải nhờ tới bên ngoài can thiệp (bên nhà ngoại, hàng xóm bên ngoài...). Khó có thể chờ đợi cho tên chồng bạo hành thay đổi khi quyền nó nắm trong tay! Chấp chị vợ nó kêu gào, khóc lóc, van xin... thì hắn ta cũng không bao giờ thay đổi!
+- 2 vợ chồng sống trong 1 gia đình, nam-nữ (đực-cái) đặc tính sinh học là không giống nhau. Việt~Cộng thì không muốn sống chung với tư tưởng khác, luôn tìm cách tiêu diệt tư tưởng khác với chúng! Việt~Cộng chính tên chồng bạo hành luôn muốn áp đặt lên chị vợ, bắt chị vợ phải răm rắp nghe theo.
+- Bọn cầm quyền ở VN hiện nay liệu có phải là dân Việt, hay toàn là Tung~Cộng đội lốt và bị mua chuộc? Bọn Việt~Cộng này đã biến thành "tên chồng bạo hành", rất gian ác, rất hám danh, rất hám lợi và rất hám quyền. Dân là "chị vợ" ở thế yếu mà không có trợ giúp ở ngoài thì muốn đời không làm gì được lũ Việt~Cộng!
+
+## ! WARNING ! Vì sao Việt~Cộng tạo ra nhiều co~vid apps, mà không đời nào chịu làm blockchain 1 cửa (công khai minh bạch)
+
+- Lũ nó cố tình làm nhiều apps để làm nhiễu loạn và che giấu bọn chóp bu đã chích vac_cine của hãng nào (xài hãng Mỹ rõ ràng chứ giấu gì nữa).
+- Database chúng nó nắm trong tay, muốn chỉnh sửa & tráo đổi cho dân đã tiêm hàng tàu thành tiêm hãng Mỹ. Dân đâu biết rõ, cứ thấy được ghi chữ hàng Mỹ là mừng, cảm ơn Việt~Cộng ríu rít, đâu biết rằng đang làm thế thân cho bọn chóp bu, để lũ này đem ra dâng cúng cho quan thầy tung~cộng
+- Tiện thể, bòn rút ngân sách làm cả trăm cái apps, đút túi mỗi cái app giá 5-10 tỷ ngon ơ.
+- Nhưng lộ ra, từ app Côn~Ẳng cho tới Quèn~Đội đều **bất~tuân~đẽng~sự, tự chuyển biến**, đi xài hàng Mỹ: database hãng Oracle (Java, JDK platform). Logo của các apps thì đều dùng màu giống màu cờ của Mỹ, sao lũ này không lấy màu~đỏ~sao~vàng, đậu~má lũ ché~đỏ~liếm~bùa làm xấu hổ màu blue!
 
 ## ! WARNING ! KẺ NÀO MỚI LÀ CỰC-ĐOAN CHỐNG-NHAU THÙ-DAI HƠN?
 
-- Nhiều năm rồi, VC liên tục cho 47 gây thù với hải ngoại, chê bai chửi bới VNCH. Nhưng ra sức nâng-bi-bưng-bô tung-cộng!
+- Nhiều năm rồi, Việt~Cộng liên tục cho 47 gây thù với hải ngoại, chê bai chửi bới VNCH. Nhưng ra sức nâng-bi-bưng-bô tung-cộng!
 - Mấy năm rồi, Việt-Cộng đang dâng 3 đặc khu cho tung-cộng 99 năm. Tại sao không cho VNCH thuê 20 năm? "20 năm ... từng ngày. Gia tài của mẹ ..."
-- Hợp tác là tôn trọng lẫn nhau, còn VC thì chỉ cho hồ-kiều bưng-bô-cho-VC mới được đầu tư, lúc nào VC cũng muốn "ta đây cửa trên"! Thử hỏi kẻ nào mới là thù-dai & cực-đoan?
-- **Meme video Bụi Đời Phố Bolsa**: "__Anh bạn, cho tôi b-ú-c-u để giảng hòa, cùng là đồng hương với nhau mà__".../... "__Con-kẹt, bố mày cửa trên, bố mày thích gây lộn thì sao nào__"...
+- Hợp tác là tôn trọng lẫn nhau, còn VC thì chỉ cho hồ-kiều bưng-bô-cho-Việt~Cộng mới được đầu tư, lúc nào VC cũng muốn "ta đây cửa trên"! Thử hỏi kẻ nào mới là thù-dai & cực-đoan?
+- **Meme video Bụi Đời Phố Bolsa**: "__Anh bạn, cho tôi b-ú-c-u để giảng hòa, cùng là đồng hương với nhau mà__".../... "__Con~kẹt, bố mày cửa trên, bố mày thích gây lộn thì sao nào__"...
 - CÀ-KHỊA **Sóng Gió** (Kẻ nào mới muốn gây ra sóng gió?), cà khịa lại bài "Sóng Gió remix nhạc cách mạng b-ợ-đ-í-t-VC": 
   - Hồng trần trên đôi cánh tay, họa đời em trong phút giây (__chỉ sướng cái giây phút tạo ra ngày 30/4__)... từ ngày thơ (__ngây thơ không biết ai là bạn ai là thù__) ấy còn ngủ mơ (__ngủ mơ trong chiến thắng 30/4 để được gì__) đến khi em thờ ơ (__thờ ơ bỏ mất cơ hội phát triển__)... 
   - Lòng người ai đâu có hay, một ngày khi vỗ cánh bay (__tung-cộng nó vỗ cánh lên thứ 2 thì nó có chịu giúp đỡ vac-cine không?__)... từ người yêu hóa thành người dưng đến khi ta tự xưng (__bị tung-cộng bỏ rơi thì việt-cộng tự sướng cái gì nữa?__)
-  - Thương em bờ vai nhỏ nhỏi đôi mắt hóa mây đêm... Đời phiêu du cố tìm 1 người thật lòng (__giờ thì Mỹ hay tung-cộng ai mới thật lòng hơn đây, thấm chưa?__)
+  - Thương em bờ vai nhỏ nhỏi đôi mắt hóa mây đêm... Đời phiêu du cố tìm 1 người thật lòng (__giờ thì Mỹ hay tung-cộng ai mới thật lòng hơn đây, Việt~Cộng thấm chưa?__)
   - Chim kia về vẫn có đôi sao chẳng số phu thê. Em ơi đừng xa cách tôi trăng cố níu em về.
-    - (__giờ VC muốn được Mỹ níu về hay vẫn còn ngây thơ__)
+    - (__giờ Việt~Cộng muốn được Mỹ níu về hay vẫn còn ngây thơ__)
   - Bình yên trên mái nhà nhìn đời ngược dòng, em còn bên anh có phải không?
-    - (__VC thích ngược dòng để đi bưng bô cho tung-cộng?__)
+    - (__Việt~Cộng thích ngược dòng để đi bưng bô cho tung-cộng?__)
   - Trời ban ánh sáng năm tháng tứ bề, dáng ai về chung lối
-    - (__đã bán anh sáng hòn ngọc viễn đông rồi, mà VC không biết đi đánh phá, giờ tiền đứng bét ĐNÁ__)
+    - (__đã bán anh sáng hòn ngọc viễn đông rồi, mà Việt~Cộng không biết đi đánh phá, giờ tiền đứng bét ĐNÁ__)
   - Người mang tia nắng nhưng cớ sao còn tâm tối
-    - (__3 tia nắng trên nền vàng bị bọn VC nó làm cho tối tăm luôn rồi__)
+    - (__3 tia nắng trên nền vàng bị bọn Việt~Cộng nó làm cho tối tăm luôn rồi__)
   - Một mai em lỡ vấp ngã trên đời thay đổi, nhìn về anh, người chẳng khiến em lẻ loi
     - (__VC vấp cái co-vid-21 giờ muốn vac-cine Mỹ hay hàng tàu?__)
   - Nhặt một nhành hoa rơi, đoạn đường về nhà thật buồn em ơi
-    - (__VC mót nhặt được vac-cine Pfizer&Moderna mà khoe tiêm cho COCC để bị dân chửi, về nhà ông ngoại buồn chưa?__ **Trẻ trâu Dương~Đức~Thẹo giựt xé là cờ vàng VNCH Việt Nam Cộng Hòa ở Úc Đại Lợi**)
+    - (__Việt~Cộng mót nhặt được vac-cine Pfizer&Moderna mà khoe tiêm cho COCC để bị dân chửi, về nhà ông ngoại buồn chưa?__ **Trẻ trâu Dương~Đức~Thẹo giựt xé là cờ vàng VNCH Việt Nam Cộng Hòa ở Úc Đại Lợi**)
   - Dòng người vội vàng giờ này tình ơi tình ơi em ở đâu rồi
-    - (__sao VC vội vàng theo Mỹ quá, để thằng tung cộng nó đi tìm kìa__)
+    - (__sao Việt~Cộng vội vàng theo Mỹ quá, để thằng tung cộng nó đi tìm kìa__)
   - Lặng nhìn bờ vai xưa, tựa đầu mình hỏi rằng khổ chưa?
-    - (__sao rồi, VC giờ còn muốn nhìn bơ vai xưa của tung-cộng nữa không? Sướng không muốn cứ muốn khổ hay sao?__)
+    - (__sao rồi, Việt~Cộng giờ còn muốn nhìn bơ vai xưa của tung-cộng nữa không? Sướng không muốn cứ muốn khổ hay sao?__)
 
 ## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
 
