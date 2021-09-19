@@ -1,6 +1,27 @@
 # PROJECT YÊU-SÁCH-3-ĐẶC-KHU-DÀNH-CHO-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
-### Việt~Cộng là thằng chồng say rượu, đánh vợ đập con (đánh dân đen)
+### [Debate / Tranh Luận] Có nên để Việt~Cộng bắt tù khi đấu tranh chống tà quyền độc tài?
+
+- Thống kê hơn 25 năm (1/4 thế kỷ) (từ khi Vietnam có internet), đã có bao nhiêu tù nhân lương tâm bị Việt~Cộng bắt tù? (chưa tính số bị trù dập, bị côn-ẳng vây quanh ngoài đời)
+- Kết quả ra sao?
+  - Tầng lớp Việt~Cộng càng ngày càng nắm quyền, càng ngày càng giàu, mua bán thương mại với Tây phương, rồi cho COCC du học, ăn thịt bò, uống rịu vang (ăn bò bú vang)
+    - Lúc đại dịch chúng nó sẵn sàng nhốt dân đói, sau đó làm trò cứu trợ SG, để Việt~Cộng là "đấng cứu nhân độ thế"
+- Những người đấu tranh thì:
+  - Người còn trong tù thì chỉ có cách tuyệt thực để biểu tình, quyết không đi hải ngoại.
+    - Liệu bọn Việt~Cộng có thay đổi? 
+    - 100% KHÔNG HỀ THAY ĐỔI GÌ, Việt~Cộng CÀNG MỪNG THÌ THẤY TÙ NHÂN HÉO~MÒN ĐẾN~C~H~Ế~T !!!
+    - Loài quỷ Việt~Cộng thấy ai C~H~Ế~T thì càng mừng, càng mừng hơn!!! The-hell-MATRIX trường tồn!
+  - Người ra được tù, rồi đi hải ngoại:
+    - Đa số thì bị nghi ngờ, trúng trò gây chia rẽ của lũ Việt~Cộng, dự án nào đưa ra cũng bị nghi ngờ là nằm vùng.
+    - Số ít biết làm truyền thông online, livestreaming... thì cũng dính chiêu gây chia rẽ của lũ Việt~Cộng, mạnh người nào người đó làm, chưa tạo được mạng lưới tương hỗ cho nhau, backup nhau!!!
+    - Cuối cùng cũng chỉ dừng lại ở mức loan~tin (news), mà ít thấy có dự án thực tế nào để lật đổ bọn Việt~Cộng. 
+  - Đa số toàn phân tích những cái đa số dân đều đã biết, vì Việt~Cộng nó cố tình để cho dân biết mà, để nó nắm tình hình mà!
+    - Lúc đại dịch đợt 4 Việt~Cộng nó cố tình làm ngu, để coi dân nổi loạn tới đâu, vừa giúp quan thầy tung-cộng có cơ hội phục hồi sản xuất, hãng xưởng!!!
+    - Thậm chí nếu không ai muốn đấu tranh nữa thì Việt~Cộng sẽ mướm cho đấu (đưa đạn cho bắn), rồi lấy tiền ngân sách ra đi nhậu với các bigtechs (Youtube, Facebook) để chặn xóa
+    - Việt~Cộng nó ghiền bắt đối lập mà, không có đối lập thì lấy gì lũ nó lập công, khoe thành tích
+
+
+### [Debate / Tranh Luận] Việt~Cộng là thằng chồng say rượu, đánh vợ đập con (đánh dân đen)
 
 - Ra rả tiến lên XHCN & CS, nhưng hỏi khi nào **thì nói không biết lúc nào (chưa biết đến hết thế kỷ 21 có tới được không)**!!!
 - Rõ ràng **Việt~Cộng là thằng say rượu** mới nói kiểu **ảo tưởng & lì lượm** như vậy thôi!!!
@@ -12,7 +33,7 @@
 - Việt~Cộng lúc nào cũng khoe tư tưởng, **quân đội cũng phải theo tư tưởng Việt~Cộng**, nhưng giờ lại xấu hổ bảo vệ chế độ theo cách **đấp tiền bằng đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị**!
 - VC đang đấp mộ chế độ bằng **đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị**
 
-### Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
+### [Debate / Tranh Luận] Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
 
 - "Chị vợ" muốn chống lại "tên chồng bạo hành" trong gia đình của họ, thì cũng phải nhờ tới bên ngoài can thiệp. Khó có thể chờ đợi cho tên chồng bạo hành thay đổi khi quyền nó nắm trong tay! Chấp chị vợ nó kêu gào, khóc lóc, van xin... thì hắn cũng không bao giờ thay đổi!
 - 2 vợ chồng sống trong 1 gia đình, nam-nữ (đực-cái) đặc tính sinh học là không giống nhau. Việt-Cộng thì không muốn sống chung với tư tưởng khác, luôn tìm cách tiêu diệt tư tưởng khác với chúng! Việt-Cộng chính tên chồng bạo hành luôn muốn áp đặt lên chị vợ, bắt chị vợ phải răm rắp nghe theo.
@@ -47,19 +68,18 @@
 
 ## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
 
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không biết xấu hổ khi đồng tiền in hình lãnh-tụ của-VC-duy-nhất-độc-tôn có GIÁ TRỊ THẤP NHẤT THẾ GIỚI. Vẫn phải tự hào đi xuất khẩu-lao-động, chui-container-lạnh... hơn 20 năm mà hồ-tệ vẫn càng ngày càng rớt giá!
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không được sân si với triều-đình-VC (không được biểu tình, không được lập đảng mới), phải bưng bô như **Mụ-Moon-Hèng-Hủ**, nếu không sẽ bị coi là vô ơn. Suy nghĩ kiểu VC thì không khác gì đang chửi ông Phật Buddha (Bụt đà), đã từ bỏ thiên đàng do vua cha dựng ra trong hoàng cung, để tạo lập ra tôn giáo bình đẳng: **Chúng sanh ai cũng có thể thành Phật**.
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là dân phải tự góp tiền cùng hải ngoại, gửi về giúp dân trong nước, còn lãnh-địu-VC rất tích cực, niềm vui tràn trề, vì tự nhiên lại có thêm tiền để gửi bank lấy lãi, tiện thể gom đất mua nhà mua xe, gửi con cái đi du học ăn bơ-sữa-rượu-nho thượng hạng, ứ thèm nước-mắm-chấm-rau-răm. Thank **Rau-Răm-Bay** so much!
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải mua xe lởm gắn mác yêu nước của **VinPhét-BốcCớt**, để tập đoàn nhóm lợi ích thân **VC-LiênXô** chôm **5000 liều vac_cine** hàng Mỹ-Đế chính hiệu!
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là y tá chích mót vac-cine Pfi-zer phải chịu tội thay, để tẩy não dân thay cho "con ông nội"
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải KHÔNG ĐƯỢC CHỌN LOẠI VAC_CINE được tiêm vào cơ thể của bản thân. <Đòi lựa vac-cine, kén cá chọn canh, được voi đòi Hai-Bà-Trưng... cái gì, có chích là mừng rồi> - một cháu ông ngoại của lãnh-địu-VC cho hay, cháu ngoại rất có tài, cháu ngoại phát biểu quá chuẩn cháu ông tờ-lú-luẩn
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **Mụ-Moon-Hèng-Hủ** lên khoe "có pháp luật nha quý vị" đối với người giàu chóp bu, còn dân đi **mua bánh mì** thì phải chịu chửi khinh bỉ: **"mày ở trên núi xuống phải không"**
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải xài hàng tàu nhường hãng Mỹ cho lãnh-địu-VC
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải **để lại đất đai giá rẻ** cho gia đình con cháu lãnh-địu-VC xài bán ăn lời
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải nhường gái đẹp cho các lãnh-địu-VC cưới 2-3 vợ
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải sống khổ cách ly khi đại dịch, để lãnh-địu-VC giàu sang ở nhà dư thừa đồ ăn, vac_cine hàng Mỹ loại xịn, tiêm 3 mũi trong tầm tay!
-- **SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải **mang danh phản động** còn, lãnh-địu-VC thì vô tư hợp thức hóa **3 đặc khu bán đất 99 năm** cho tung-cộng, còn người anh em VNCH thì chúng nó nhất định tiêu diệt!
-
+- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không biết xấu hổ khi đồng tiền in hình lãnh-tụ của-VC-duy-nhất-độc-tôn có GIÁ TRỊ THẤP NHẤT THẾ GIỚI. Vẫn phải tự hào đi xuất khẩu-lao-động, chui-container-lạnh... hơn 20 năm mà hồ-tệ vẫn càng ngày càng rớt giá!
+- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là phải không được sân si với triều-đình-VC (không được biểu tình, không được lập đảng mới), phải bưng bô như **Mụ-Moon-Hèng-Hủ**, nếu không sẽ bị coi là vô ơn. Suy nghĩ kiểu VC thì không khác gì đang chửi ông Phật Buddha (Bụt đà), đã từ bỏ thiên đàng do vua cha dựng ra trong hoàng cung, để tạo lập ra tôn giáo bình đẳng: **Chúng sanh ai cũng có thể thành Phật**.
+- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là dân phải tự góp tiền cùng hải ngoại, gửi về giúp dân trong nước, còn lãnh-địu-VC rất tích cực, niềm vui tràn trề, vì tự nhiên lại có thêm tiền để gửi bank lấy lãi, tiện thể gom đất mua nhà mua xe, gửi con cái đi du học ăn bơ-sữa-rượu-nho thượng hạng, ứ thèm nước-mắm-chấm-rau-răm. Thank **Rau-Răm-Bay** so much!
+- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là phải mua xe lởm gắn mác yêu nước của **VinPhét-BốcCớt**, để tập đoàn nhóm lợi ích thân **VC-LiênXô** chôm **5000 liều vac_cine** hàng Mỹ-Đế chính hiệu!
+- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là y tá chích mót vac-cine Pfi-zer phải chịu tội thay, để tẩy não dân thay cho "con ông nội"
+- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là phải KHÔNG ĐƯỢC CHỌN LOẠI VAC_CINE được tiêm vào cơ thể của bản thân. <Đòi lựa vac-cine, kén cá chọn canh, được voi đòi Hai-Bà-Trưng... cái gì, có chích là mừng rồi> - một cháu ông ngoại của lãnh-địu-VC cho hay, cháu ngoại rất có tài, cháu ngoại phát biểu quá chuẩn cháu ông tờ-lú-luẩn
+- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là **Mụ-Moon-Hèng-Hủ** lên khoe "có pháp luật nha quý vị" đối với người giàu chóp bu, còn dân đi **mua bánh mì** thì phải chịu chửi khinh bỉ: **"mày ở trên núi xuống phải không"**
+- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải xài hàng tàu nhường hãng Mỹ cho lãnh-địu-VC
+- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là phải **để lại đất đai giá rẻ** cho gia đình con cháu lãnh-địu-VC xài bán ăn lời
+- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải nhường gái đẹp cho các lãnh-địu-VC cưới 2-3 vợ
+- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là phải sống khổ cách ly khi đại dịch, để lãnh-địu-VC giàu sang ở nhà dư thừa đồ ăn, vac_cine hàng Mỹ loại xịn, tiêm 3 mũi trong tầm tay!
+- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là phải **mang danh phản động** còn, lãnh-địu-VC thì vô tư hợp thức hóa **3 đặc khu bán đất 99 năm** cho tung-cộng, còn người anh em VNCH thì chúng nó nhất định tiêu diệt!
 
 ## NHỮNG NGƯỜI HÙNG LIVESTREAMING ĐÃ LÀM Việt~Cộng SỢ HÃI
 
@@ -74,7 +94,7 @@
   - __Tại sao ở xứ Việt~Cộng chỉ có tên đường Tất Thành, mà không có tên đường Ái-Quốc__
   - __Rõ ràng lũ Việt~Cộng muốn tẩy não chỉ cần đạt được mục đích (tất thành), chứ không cần yêu nước (ái quốc), sẵn sàng hoàn thành giao nộp cho bọn tung~cộng__
 - (LIVESTREAMING) **Sean Le ~ Lính Mỹ gốc Việt** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
-- (LIVESTREAMING, Bị VCNằmVùngHảiNgoại chửi rủa) **Kỹ sư IT (điện toán) Quân Trương** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
+- (LIVESTREAMING, Bị VCNằmVùngHảiNgoại chửi rủa) **Kỹ sư IT (điện toán) Quân Trương && Minh Lương** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
 - (LIVESTREAMING) **Mrs. Rachel Quý** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
 - (LIVESTREAMING, PAUSED) **Kỹ sư Hoàng Ngọc Diêu (điện toán), (Bất Tuân Dân Sự & Bất Bạo Động), (vạch mặt tượng đài hồ~tặc)**
 
@@ -82,7 +102,7 @@
 - (LIVESTREAMING) **Nữ~Luật~Sư Trần Kiều Ngọc**
 - (PAUSED, Bị VCNằmVùngHảiNgoại chửi rủa tới 2 videos) **Nữ~Tiến~Sĩ Trần Thị Ái Liên**
 - (LIVESTREAMING, Bị VCNằmVùngHảiNgoại chửi rủa) **Mẹ Nấm (Nguyễn Ngọc Như Quỳnh)**
-- (LIVESTREAMING) **Anh Chi (Paris, France)**
+- (LIVESTREAMING) **Anh Chi (Khôi Phục Tâm Thức Việt)**
 - (LIVESTREAMING) **Đoàn Thị Thùy Dương**
 - (LIVESTREAMING) Tạ Phong Tần (từng là công an VC, đã định cư Mỹ)
 
