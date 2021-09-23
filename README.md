@@ -1,112 +1,112 @@
 # PROJECT YÊU-SÁCH-3-ĐẶC-KHU-DÀNH-CHO-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
-### [Debate / Tranh Luận] Có nên để Việt~Cộng bắt tù khi đấu tranh chống tà quyền độc tài?
+### [Debate / Tranh Luận] Có nên để Việt_Cộng bắt tù khi đấu tranh chống tà quyền độc tài?
 
-- Thống kê hơn 25 năm (1/4 thế kỷ) (từ khi Vietnam có internet), đã có bao nhiêu tù nhân lương tâm bị Việt~Cộng bắt tù? (chưa tính số bị trù dập, bị côn-ẳng vây quanh ngoài đời)
+- Thống kê hơn 25 năm (1/4 thế kỷ) (từ khi Vietnam có internet), đã có bao nhiêu tù nhân lương tâm bị Việt_Cộng bắt tù? (chưa tính số bị trù dập, bị côn-ẳng vây quanh ngoài đời)
 - Kết quả ra sao?
-  - Tầng lớp Việt~Cộng càng ngày càng nắm quyền, càng ngày càng giàu, mua bán thương mại với Tây phương, rồi cho COCC du học, ăn thịt bò, uống rịu vang (ăn bò bú vang)
-    - Lúc đại dịch chúng nó sẵn sàng nhốt dân đói, sau đó làm trò cứu trợ SG, để Việt~Cộng là "đấng cứu nhân độ thế"
+  - Tầng lớp Việt_Cộng càng ngày càng nắm quyền, càng ngày càng giàu, mua bán thương mại với Tây phương, rồi cho COCC du học, ăn thịt bò, uống rịu vang (ăn bò bú vang)
+    - Lúc đại dịch chúng nó sẵn sàng nhốt dân đói, sau đó làm trò cứu trợ SG, để Việt_Cộng là "đấng cứu nhân độ thế"
 - Những người đấu tranh thì:
   - Người còn trong tù thì chỉ có cách tuyệt thực để biểu tình, quyết không đi hải ngoại.
-    - Liệu bọn Việt~Cộng có thay đổi? 
-    - 100% KHÔNG HỀ THAY ĐỔI GÌ, Việt~Cộng CÀNG MỪNG THÌ THẤY TÙ NHÂN HÉO~MÒN ĐẾN~C~H~Ế~T !!!
-    - Loài quỷ Việt~Cộng thấy ai C~H~Ế~T thì càng mừng, càng mừng hơn!!! The-hell-MATRIX trường tồn!
+    - Liệu bọn Việt_Cộng có thay đổi? 
+    - 100% KHÔNG HỀ THAY ĐỔI GÌ, Việt_Cộng CÀNG MỪNG THÌ THẤY TÙ NHÂN HÉO_MÒN ĐẾN_C_H_Ế_T !!!
+    - Loài quỷ Việt_Cộng thấy ai C_H_Ế_T thì càng mừng, càng mừng hơn!!! The-hell-MATRIX trường tồn!
   - Người ra được tù, rồi đi hải ngoại:
-    - Đa số thì bị nghi ngờ, trúng trò gây chia rẽ của lũ Việt~Cộng, dự án nào đưa ra cũng bị nghi ngờ là nằm vùng.
-    - Số ít biết làm truyền thông online, livestreaming... thì cũng dính chiêu gây chia rẽ của lũ Việt~Cộng, mạnh người nào người đó làm, chưa tạo được mạng lưới tương hỗ cho nhau, backup nhau!!!
-    - Cuối cùng cũng chỉ dừng lại ở mức loan~tin (news), mà ít thấy có dự án thực tế nào để lật đổ bọn Việt~Cộng. 
-  - Đa số toàn phân tích những cái đa số dân đều đã biết, vì Việt~Cộng nó cố tình để cho dân biết mà, để nó nắm tình hình mà!
-    - Lúc đại dịch đợt 4 Việt~Cộng nó cố tình làm ngu, để coi dân nổi loạn tới đâu, vừa giúp quan thầy tung-cộng có cơ hội phục hồi sản xuất, hãng xưởng!!!
-    - Thậm chí nếu không ai muốn đấu tranh nữa thì Việt~Cộng sẽ mướm cho đấu (đưa đạn cho bắn), rồi lấy tiền ngân sách ra đi nhậu với các bigtechs (Youtube, Facebook) để chặn xóa
-    - Việt~Cộng nó ghiền bắt đối lập mà, không có đối lập thì lấy gì lũ nó lập công, khoe thành tích
+    - Đa số thì bị nghi ngờ, trúng trò gây chia rẽ của lũ Việt_Cộng, dự án nào đưa ra cũng bị nghi ngờ là nằm vùng.
+    - Số ít biết làm truyền thông online, livestreaming... thì cũng dính chiêu gây chia rẽ của lũ Việt_Cộng, mạnh người nào người đó làm, chưa tạo được mạng lưới tương hỗ cho nhau, backup nhau!!!
+    - Cuối cùng cũng chỉ dừng lại ở mức loan_tin (news), mà ít thấy có dự án thực tế nào để lật đổ bọn Việt_Cộng. 
+  - Đa số toàn phân tích những cái đa số dân đều đã biết, vì Việt_Cộng nó cố tình để cho dân biết mà, để nó nắm tình hình mà!
+    - Lúc đại dịch đợt 4 Việt_Cộng nó cố tình làm ngu, để coi dân nổi loạn tới đâu, vừa giúp quan thầy tung-cộng có cơ hội phục hồi sản xuất, hãng xưởng!!!
+    - Thậm chí nếu không ai muốn đấu tranh nữa thì Việt_Cộng sẽ mướm cho đấu (đưa đạn cho bắn), rồi lấy tiền ngân sách ra đi nhậu với các bigtechs (Youtube, Facebook) để chặn xóa
+    - Việt_Cộng nó ghiền bắt đối lập mà, không có đối lập thì lấy gì lũ nó lập công, khoe thành tích
 
-### [Debate / Tranh Luận] Việt~Cộng là thằng chồng say rượu, đánh vợ đập con (đánh dân đen)
+### [Debate / Tranh Luận] Việt_Cộng là thằng chồng say rượu, đánh vợ đập con (đánh dân đen)
 
 - Ra rả tiến lên XHCN & CS, nhưng hỏi khi nào **thì nói không biết lúc nào (chưa biết đến hết thế kỷ 21 có tới được không)**!!!
-- Rõ ràng **Việt~Cộng là thằng say rượu** mới nói kiểu **ảo tưởng & lì lượm** như vậy thôi!!!
-- Việt~Cộng say rượu còn ảo tưởng **dẫn tất cả xuống hố**, ai không theo thì nó còn bắt ép phải theo **(nhưng dân phải nhảy xuống hố trước, còn VC nó đứng trên bờ)**!!!
+- Rõ ràng **Việt_Cộng là thằng say rượu** mới nói kiểu **ảo tưởng & lì lượm** như vậy thôi!!!
+- Việt_Cộng say rượu còn ảo tưởng **dẫn tất cả xuống hố**, ai không theo thì nó còn bắt ép phải theo **(nhưng dân phải nhảy xuống hố trước, còn VC nó đứng trên bờ)**!!!
 
-### Việt~Cộng chi ngân sách nuôi lũ Côn-Ẳng nhiều gấp 10 lần cho Y Tế (Sức Khỏe) & Giáo Dục
+### Việt_Cộng chi ngân sách nuôi lũ Côn-Ẳng nhiều gấp 10 lần cho Y Tế (Sức Khỏe) & Giáo Dục
 
-- Là do Việt~Cộng muốn Côn-Ẳng làm việc kiểu **nghe lời vì đồng tiền**, chứ đâu phải vì chế độ hay lý tưởng gì nữa!
-- Việt~Cộng lúc nào cũng khoe tư tưởng, **quân đội cũng phải theo tư tưởng Việt~Cộng**, nhưng giờ lại xấu hổ bảo vệ chế độ theo cách **đấp tiền bằng đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị**!
+- Là do Việt_Cộng muốn Côn-Ẳng làm việc kiểu **nghe lời vì đồng tiền**, chứ đâu phải vì chế độ hay lý tưởng gì nữa!
+- Việt_Cộng lúc nào cũng khoe tư tưởng, **quân đội cũng phải theo tư tưởng Việt_Cộng**, nhưng giờ lại xấu hổ bảo vệ chế độ theo cách **đấp tiền bằng đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị**!
 - VC đang đấp mộ chế độ bằng **đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị**
 
 ### [Debate / Tranh Luận] Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
 
 - "Chị vợ" muốn chống lại "tên chồng bạo hành" trong gia đình của họ, thì cũng phải nhờ tới bên ngoài can thiệp (bên nhà ngoại, hàng xóm bên ngoài...). Khó có thể chờ đợi cho tên chồng bạo hành thay đổi khi quyền nó nắm trong tay! Chấp chị vợ nó kêu gào, khóc lóc, van xin... thì hắn ta cũng không bao giờ thay đổi!
-- 2 vợ chồng sống trong 1 gia đình, nam-nữ (đực-cái) đặc tính sinh học là không giống nhau. Việt~Cộng thì không muốn sống chung với tư tưởng khác, luôn tìm cách tiêu diệt tư tưởng khác với chúng! Việt~Cộng chính tên chồng bạo hành luôn muốn áp đặt lên chị vợ, bắt chị vợ phải răm rắp nghe theo.
-- Bọn cầm quyền ở VN hiện nay liệu có phải là dân Việt, hay toàn là Tung~Cộng đội lốt và bị mua chuộc? Bọn Việt~Cộng này đã biến thành "tên chồng bạo hành", rất gian ác, rất hám danh, rất hám lợi và rất hám quyền. Dân là "chị vợ" ở thế yếu mà không có trợ giúp ở ngoài thì muốn đời không làm gì được lũ Việt~Cộng!
+- 2 vợ chồng sống trong 1 gia đình, nam-nữ (đực-cái) đặc tính sinh học là không giống nhau. Việt_Cộng thì không muốn sống chung với tư tưởng khác, luôn tìm cách tiêu diệt tư tưởng khác với chúng! Việt_Cộng chính tên chồng bạo hành luôn muốn áp đặt lên chị vợ, bắt chị vợ phải răm rắp nghe theo.
+- Bọn cầm quyền ở VN hiện nay liệu có phải là dân Việt, hay toàn là Tung_Cộng đội lốt và bị mua chuộc? Bọn Việt_Cộng này đã biến thành "tên chồng bạo hành", rất gian ác, rất hám danh, rất hám lợi và rất hám quyền. Dân là "chị vợ" ở thế yếu mà không có trợ giúp ở ngoài thì muốn đời không làm gì được lũ Việt_Cộng!
 
-## ! WARNING ! Vì sao Việt~Cộng tạo ra nhiều co~vid apps, mà không đời nào chịu làm blockchain 1 cửa (công khai minh bạch)
+## ! WARNING ! Vì sao Việt_Cộng tạo ra nhiều co_vid apps, mà không đời nào chịu làm blockchain 1 cửa (công khai minh bạch)
 
 - Lũ nó cố tình làm nhiều apps để làm nhiễu loạn và che giấu bọn chóp bu đã chích vac_cine của hãng nào (xài hãng Mỹ rõ ràng chứ giấu gì nữa).
-- Database chúng nó nắm trong tay, muốn chỉnh sửa & tráo đổi cho dân đã tiêm hàng tàu thành tiêm hãng Mỹ. Dân đâu biết rõ, cứ thấy được ghi chữ hàng Mỹ là mừng, cảm ơn Việt~Cộng ríu rít, đâu biết rằng đang làm thế thân cho bọn chóp bu, để lũ này đem ra dâng cúng cho quan thầy tung~cộng
+- Database chúng nó nắm trong tay, muốn chỉnh sửa & tráo đổi cho dân đã tiêm hàng tàu thành tiêm hãng Mỹ. Dân đâu biết rõ, cứ thấy được ghi chữ hàng Mỹ là mừng, cảm ơn Việt_Cộng ríu rít, đâu biết rằng đang làm thế thân cho bọn chóp bu, để lũ này đem ra dâng cúng cho quan thầy tung_cộng
 - Tiện thể, bòn rút ngân sách làm cả trăm cái apps, đút túi mỗi cái app giá 5-10 tỷ ngon ơ.
-- Nhưng lộ ra, từ app Côn~Ẳng cho tới Quèn~Đội đều **bất~tuân~đẽng~sự, tự chuyển biến**, đi xài hàng Mỹ: database hãng Oracle (Java, JDK platform). Logo của các apps thì đều dùng màu giống màu cờ của Mỹ, sao lũ này không lấy màu~đỏ~sao~vàng, đậu~má lũ ché~đỏ~liếm~bùa làm xấu hổ màu blue!
+- Nhưng lộ ra, từ app Côn-Ẳng cho tới Quèn-Đội đều **bất:tuân:đẽng:sự, tự chuyển biến**, đi xài hàng Mỹ: database hãng Oracle (Java, JDK platform). Logo của các apps thì đều dùng màu giống màu cờ của Mỹ, sao lũ này không lấy màu:đỏ:sao:vàng, đậu:má lũ ché:đỏ:liếm:bùa làm xấu hổ màu blue!
 
 ## ! WARNING ! KẺ NÀO MỚI LÀ CỰC-ĐOAN CHỐNG-NHAU THÙ-DAI HƠN?
 
-- Nhiều năm rồi, Việt~Cộng liên tục cho 47 gây thù với hải ngoại, chê bai chửi bới VNCH. Nhưng ra sức nâng-bi-bưng-bô tung-cộng!
+- Nhiều năm rồi, Việt:Cộng liên tục cho 47 gây thù với hải ngoại, chê bai chửi bới VNCH. Nhưng ra sức nâng-bi-bưng-bô tung-cộng!
 - Mấy năm rồi, Việt-Cộng đang dâng 3 đặc khu cho tung-cộng 99 năm. Tại sao không cho VNCH thuê 20 năm? "20 năm ... từng ngày. Gia tài của mẹ ..."
-- Hợp tác là tôn trọng lẫn nhau, còn VC thì chỉ cho hồ-kiều bưng-bô-cho-Việt~Cộng mới được đầu tư, lúc nào VC cũng muốn "ta đây cửa trên"! Thử hỏi kẻ nào mới là thù-dai & cực-đoan?
-- **Meme video Bụi Đời Phố Bolsa**: "__Anh bạn, cho tôi b-ú-c-u để giảng hòa, cùng là đồng hương với nhau mà__".../... "__Con~kẹt, bố mày cửa trên, bố mày thích gây lộn thì sao nào__"...
+- Hợp tác là tôn trọng lẫn nhau, còn VC thì chỉ cho hồ-kiều bưng-bô-cho-Việt:Cộng mới được đầu tư, lúc nào VC cũng muốn "ta đây cửa trên"! Thử hỏi kẻ nào mới là thù-dai & cực-đoan?
+- **Meme video Bụi Đời Phố Bolsa**: "__Anh bạn, cho tôi b-ú-c-u để giảng hòa, cùng là đồng hương với nhau mà__".../... "__Con:kẹt, bố mày cửa trên, bố mày thích gây lộn thì sao nào__"...
 - CÀ-KHỊA **Sóng Gió** (Kẻ nào mới muốn gây ra sóng gió?), cà khịa lại bài "Sóng Gió remix nhạc cách mạng b-ợ-đ-í-t-VC": 
   - Hồng trần trên đôi cánh tay, họa đời em trong phút giây (__chỉ sướng cái giây phút tạo ra ngày 30/4__)... từ ngày thơ (__ngây thơ không biết ai là bạn ai là thù__) ấy còn ngủ mơ (__ngủ mơ trong chiến thắng 30/4 để được gì__) đến khi em thờ ơ (__thờ ơ bỏ mất cơ hội phát triển__)... 
   - Lòng người ai đâu có hay, một ngày khi vỗ cánh bay (__tung-cộng nó vỗ cánh lên thứ 2 thì nó có chịu giúp đỡ vac-cine không?__)... từ người yêu hóa thành người dưng đến khi ta tự xưng (__bị tung-cộng bỏ rơi thì việt-cộng tự sướng cái gì nữa?__)
-  - Thương em bờ vai nhỏ nhỏi đôi mắt hóa mây đêm... Đời phiêu du cố tìm 1 người thật lòng (__giờ thì Mỹ hay tung-cộng ai mới thật lòng hơn đây, Việt~Cộng thấm chưa?__)
+  - Thương em bờ vai nhỏ nhỏi đôi mắt hóa mây đêm... Đời phiêu du cố tìm 1 người thật lòng (__giờ thì Mỹ hay tung-cộng ai mới thật lòng hơn đây, Việt:Cộng thấm chưa?__)
   - Chim kia về vẫn có đôi sao chẳng số phu thê. Em ơi đừng xa cách tôi trăng cố níu em về.
-    - (__giờ Việt~Cộng muốn được Mỹ níu về hay vẫn còn ngây thơ__)
+    - (__giờ Việt:Cộng muốn được Mỹ níu về hay vẫn còn ngây thơ__)
   - Bình yên trên mái nhà nhìn đời ngược dòng, em còn bên anh có phải không?
-    - (__Việt~Cộng thích ngược dòng để đi bưng bô cho tung-cộng?__)
+    - (__Việt:Cộng thích ngược dòng để đi bưng bô cho tung-cộng?__)
   - Trời ban ánh sáng năm tháng tứ bề, dáng ai về chung lối
-    - (__đã bán anh sáng hòn ngọc viễn đông rồi, mà Việt~Cộng không biết đi đánh phá, giờ tiền đứng bét ĐNÁ__)
+    - (__đã bán anh sáng hòn ngọc viễn đông rồi, mà Việt:Cộng không biết đi đánh phá, giờ tiền đứng bét ĐNÁ__)
   - Người mang tia nắng nhưng cớ sao còn tâm tối
-    - (__3 tia nắng trên nền vàng bị bọn Việt~Cộng nó làm cho tối tăm luôn rồi__)
+    - (__3 tia nắng trên nền vàng bị bọn Việt:Cộng nó làm cho tối tăm luôn rồi__)
   - Một mai em lỡ vấp ngã trên đời thay đổi, nhìn về anh, người chẳng khiến em lẻ loi
     - (__VC vấp cái co-vid-21 giờ muốn vac-cine Mỹ hay hàng tàu?__)
   - Nhặt một nhành hoa rơi, đoạn đường về nhà thật buồn em ơi
-    - (__Việt~Cộng mót nhặt được vac-cine Pfizer&Moderna mà khoe tiêm cho COCC để bị dân chửi, về nhà ông ngoại buồn chưa?__ **Trẻ trâu Dương~Đức~Thẹo giựt xé là cờ vàng VNCH Việt Nam Cộng Hòa ở Úc Đại Lợi**)
+    - (__Việt:Cộng mót nhặt được vac-cine Pfizer&Moderna mà khoe tiêm cho COCC để bị dân chửi, về nhà ông ngoại buồn chưa?__ **Trẻ trâu Dương:Đức:Thẹo giựt xé là cờ vàng VNCH Việt Nam Cộng Hòa ở Úc Đại Lợi**)
   - Dòng người vội vàng giờ này tình ơi tình ơi em ở đâu rồi
-    - (__sao Việt~Cộng vội vàng theo Mỹ quá, để thằng tung cộng nó đi tìm kìa__)
+    - (__sao Việt:Cộng vội vàng theo Mỹ quá, để thằng tung cộng nó đi tìm kìa__)
   - Lặng nhìn bờ vai xưa, tựa đầu mình hỏi rằng khổ chưa?
-    - (__sao rồi, Việt~Cộng giờ còn muốn nhìn bơ vai xưa của tung-cộng nữa không? Sướng không muốn cứ muốn khổ hay sao?__)
+    - (__sao rồi, Việt:Cộng giờ còn muốn nhìn bơ vai xưa của tung-cộng nữa không? Sướng không muốn cứ muốn khổ hay sao?__)
 
 ## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
 
-- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không biết xấu hổ khi đồng tiền in hình lãnh-tụ của-VC-duy-nhất-độc-tôn có GIÁ TRỊ THẤP NHẤT THẾ GIỚI. Vẫn phải tự hào đi xuất khẩu-lao-động, chui-container-lạnh... hơn 20 năm mà hồ-tệ vẫn càng ngày càng rớt giá!
-- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là phải không được sân si với triều-đình-VC (không được biểu tình, không được lập đảng mới), phải bưng bô như **Mụ-Moon-Hèng-Hủ**, nếu không sẽ bị coi là vô ơn. Suy nghĩ kiểu VC thì không khác gì đang chửi ông Phật Buddha (Bụt đà), đã từ bỏ thiên đàng do vua cha dựng ra trong hoàng cung, để tạo lập ra tôn giáo bình đẳng: **Chúng sanh ai cũng có thể thành Phật**.
-- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là dân phải tự góp tiền cùng hải ngoại, gửi về giúp dân trong nước, còn lãnh-địu-VC rất tích cực, niềm vui tràn trề, vì tự nhiên lại có thêm tiền để gửi bank lấy lãi, tiện thể gom đất mua nhà mua xe, gửi con cái đi du học ăn bơ-sữa-rượu-nho thượng hạng, ứ thèm nước-mắm-chấm-rau-răm. Thank **Rau-Răm-Bay** so much!
-- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là phải mua xe lởm gắn mác yêu nước của **VinPhét-BốcCớt**, để tập đoàn nhóm lợi ích thân **VC-LiênXô** chôm **5000 liều vac_cine** hàng Mỹ-Đế chính hiệu!
-- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là y tá chích mót vac-cine Pfi-zer phải chịu tội thay, để tẩy não dân thay cho "con ông nội"
-- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là phải KHÔNG ĐƯỢC CHỌN LOẠI VAC_CINE được tiêm vào cơ thể của bản thân. <Đòi lựa vac-cine, kén cá chọn canh, được voi đòi Hai-Bà-Trưng... cái gì, có chích là mừng rồi> - một cháu ông ngoại của lãnh-địu-VC cho hay, cháu ngoại rất có tài, cháu ngoại phát biểu quá chuẩn cháu ông tờ-lú-luẩn
-- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là **Mụ-Moon-Hèng-Hủ** lên khoe "có pháp luật nha quý vị" đối với người giàu chóp bu, còn dân đi **mua bánh mì** thì phải chịu chửi khinh bỉ: **"mày ở trên núi xuống phải không"**
-- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải xài hàng tàu nhường hãng Mỹ cho lãnh-địu-VC
-- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là phải **để lại đất đai giá rẻ** cho gia đình con cháu lãnh-địu-VC xài bán ăn lời
-- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải nhường gái đẹp cho các lãnh-địu-VC cưới 2-3 vợ
-- **SUY~NGHĨ TÍCH CỰC KIỂU VIỆT~CỘNG** là phải sống khổ cách ly khi đại dịch, để lãnh-địu-VC giàu sang ở nhà dư thừa đồ ăn, vac_cine hàng Mỹ loại xịn, tiêm 3 mũi trong tầm tay!
-- **SUY NGHĨ TÍCH~CỰC KIỂU VIỆT-CỘNG** là phải **mang danh phản động** còn, lãnh-địu-VC thì vô tư hợp thức hóa **3 đặc khu bán đất 99 năm** cho tung-cộng, còn người anh em VNCH thì chúng nó nhất định tiêu diệt!
+- **SUY:NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không biết xấu hổ khi đồng tiền in hình lãnh-tụ của-VC-duy-nhất-độc-tôn có GIÁ TRỊ THẤP NHẤT THẾ GIỚI. Vẫn phải tự hào đi xuất khẩu-lao-động, chui-container-lạnh... hơn 20 năm mà hồ-tệ vẫn càng ngày càng rớt giá!
+- **SUY NGHĨ TÍCH:CỰC KIỂU VIỆT-CỘNG** là phải không được sân si với triều-đình-VC (không được biểu tình, không được lập đảng mới), phải bưng bô như **Mụ-Moon-Hèng-Hủ**, nếu không sẽ bị coi là vô ơn. Suy nghĩ kiểu VC thì không khác gì đang chửi ông Phật Buddha (Bụt đà), đã từ bỏ thiên đàng do vua cha dựng ra trong hoàng cung, để tạo lập ra tôn giáo bình đẳng: **Chúng sanh ai cũng có thể thành Phật**.
+- **SUY:NGHĨ TÍCH CỰC KIỂU VIỆT:CỘNG** là dân phải tự góp tiền cùng hải ngoại, gửi về giúp dân trong nước, còn lãnh-địu-VC rất tích cực, niềm vui tràn trề, vì tự nhiên lại có thêm tiền để gửi bank lấy lãi, tiện thể gom đất mua nhà mua xe, gửi con cái đi du học ăn bơ-sữa-rượu-nho thượng hạng, ứ thèm nước-mắm-chấm-rau-răm. Thank **Rau-Răm-Bay** so much!
+- **SUY NGHĨ TÍCH:CỰC KIỂU VIỆT-CỘNG** là phải mua xe lởm gắn mác yêu nước của **VinPhét-BốcCớt**, để tập đoàn nhóm lợi ích thân **VC-LiênXô** chôm **5000 liều vac_cine** hàng Mỹ-Đế chính hiệu!
+- **SUY:NGHĨ TÍCH CỰC KIỂU VIỆT:CỘNG** là y tá chích mót vac-cine Pfi-zer phải chịu tội thay, để tẩy não dân thay cho "con ông nội"
+- **SUY NGHĨ TÍCH:CỰC KIỂU VIỆT-CỘNG** là phải KHÔNG ĐƯỢC CHỌN LOẠI VAC_CINE được tiêm vào cơ thể của bản thân. <Đòi lựa vac-cine, kén cá chọn canh, được voi đòi Hai-Bà-Trưng... cái gì, có chích là mừng rồi> - một cháu ông ngoại của lãnh-địu-VC cho hay, cháu ngoại rất có tài, cháu ngoại phát biểu quá chuẩn cháu ông tờ-lú-luẩn
+- **SUY:NGHĨ TÍCH CỰC KIỂU VIỆT:CỘNG** là **Mụ-Moon-Hèng-Hủ** lên khoe "có pháp luật nha quý vị" đối với người giàu chóp bu, còn dân đi **mua bánh mì** thì phải chịu chửi khinh bỉ: **"mày ở trên núi xuống phải không"**
+- **SUY NGHĨ TÍCH:CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải xài hàng tàu nhường hãng Mỹ cho lãnh-địu-VC
+- **SUY:NGHĨ TÍCH CỰC KIỂU VIỆT:CỘNG** là phải **để lại đất đai giá rẻ** cho gia đình con cháu lãnh-địu-VC xài bán ăn lời
+- **SUY NGHĨ TÍCH:CỰC KIỂU VIỆT-CỘNG** là **rau-răm** phải nhường gái đẹp cho các lãnh-địu-VC cưới 2-3 vợ
+- **SUY:NGHĨ TÍCH CỰC KIỂU VIỆT:CỘNG** là phải sống khổ cách ly khi đại dịch, để lãnh-địu-VC giàu sang ở nhà dư thừa đồ ăn, vac_cine hàng Mỹ loại xịn, tiêm 3 mũi trong tầm tay!
+- **SUY NGHĨ TÍCH:CỰC KIỂU VIỆT-CỘNG** là phải **mang danh phản động** còn, lãnh-địu-VC thì vô tư hợp thức hóa **3 đặc khu bán đất 99 năm** cho tung-cộng, còn người anh em VNCH thì chúng nó nhất định tiêu diệt!
 
-## NHỮNG NGƯỜI HÙNG LIVESTREAMING ĐÃ LÀM Việt~Cộng SỢ HÃI
+## NHỮNG NGƯỜI HÙNG LIVESTREAMING ĐÃ LÀM Việt:Cộng SỢ HÃI
 
-- **( Việt~Cộng sợ nhất những gì chúng nó không nhìn thấy được!!! Thậm chí người làm video công khai, lũ VC cũng sợ hãi tìm cách chặn cấm phát ở Vietnam )**
+- **( Việt:Cộng sợ nhất những gì chúng nó không nhìn thấy được!!! Thậm chí người làm video công khai, lũ VC cũng sợ hãi tìm cách chặn cấm phát ở Vietnam )**
 - **( Mỗi người hùng backup cho 10 bạn làm bí mật, thì lũ VC sẽ sợ té đái, lo sợ suốt ngày, ăn không ngon ngủ không yên!!! )**
-- **( Vì quá sợ hãi, nên Việt~Cộng phải "đề nghị" "yêu cầu" (van xin?) Đại Sứ Quán Mỹ USA phải xây ở Hanoi, để đi Mỹ cho nhanh khi có biến, khi dân nổi can qua??? )**
+- **( Vì quá sợ hãi, nên Việt:Cộng phải "đề nghị" "yêu cầu" (van xin?) Đại Sứ Quán Mỹ USA phải xây ở Hanoi, để đi Mỹ cho nhanh khi có biến, khi dân nổi can qua??? )**
 
 ### Hải ngoại
 
-- (LIVESTREAMING) **Trương Quốc Huy N10Tv** (bị Mụ~Hằng & VCNằmVùngHảiNgoại chửi rủa, chỉ làm 1 video đáp trả Mụ~Hằng, rồi xong???)
-- (LIVESTREAMING) **Doanh nhân, thạc sĩ Phil Đồng ~ Bác Hù channel (cà khịa gọi hồn hồ~tặc)** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám nhắc tới Doanh nhân Phil Đồng nửa lời)
-  - __Tại sao ở xứ Việt~Cộng chỉ có tên đường Tất Thành, mà không có tên đường Ái-Quốc__
-  - __Rõ ràng lũ Việt~Cộng muốn tẩy não chỉ cần đạt được mục đích (tất thành), chứ không cần yêu nước (ái quốc), sẵn sàng hoàn thành giao nộp cho bọn tung~cộng__
-- (LIVESTREAMING) **Sean Le ~ Lính Mỹ gốc Việt** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
-- (LIVESTREAMING, Bị VCNằmVùngHảiNgoại chửi rủa) **Kỹ sư IT (điện toán) Quân Trương && Minh Lương** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
-- (LIVESTREAMING) **Mrs. Rachel Quý** (đã khiến Mụ~Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
-- (LIVESTREAMING, PAUSED) **Kỹ sư Hoàng Ngọc Diêu (điện toán), (Bất Tuân Dân Sự & Bất Bạo Động), (vạch mặt tượng đài hồ~tặc)**
+- (LIVESTREAMING) **Trương Quốc Huy N10Tv** (bị Mụ:Hằng & VCNằmVùngHảiNgoại chửi rủa, chỉ làm 1 video đáp trả Mụ:Hằng, rồi xong???)
+- (LIVESTREAMING) **Doanh nhân, thạc sĩ Phil Đồng : Bác Hù channel (cà khịa gọi hồn hồ:tặc)** (đã khiến Mụ:Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám nhắc tới Doanh nhân Phil Đồng nửa lời)
+  - __Tại sao ở xứ Việt:Cộng chỉ có tên đường Tất Thành, mà không có tên đường Ái-Quốc__
+  - __Rõ ràng lũ Việt:Cộng muốn tẩy não chỉ cần đạt được mục đích (tất thành), chứ không cần yêu nước (ái quốc), sẵn sàng hoàn thành giao nộp cho bọn tung:cộng__
+- (LIVESTREAMING) **Sean Le : Lính Mỹ gốc Việt** (đã khiến Mụ:Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
+- (LIVESTREAMING, Bị VCNằmVùngHảiNgoại chửi rủa) **Kỹ sư IT (điện toán) Quân Trương && Minh Lương** (đã khiến Mụ:Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
+- (LIVESTREAMING) **Mrs. Rachel Quý** (đã khiến Mụ:Hằng & VCNằmVùngHảiNgoại... sợ hãi, không dám đụng)
+- (LIVESTREAMING, PAUSED) **Kỹ sư Hoàng Ngọc Diêu (điện toán), (Bất Tuân Dân Sự & Bất Bạo Động), (vạch mặt tượng đài hồ:tặc)**
 
 - (LIVESTREAMING) **Lisa Phạm**
-- (LIVESTREAMING) **Nữ~Luật~Sư Trần Kiều Ngọc**
-- (PAUSED, Bị VCNằmVùngHảiNgoại chửi rủa tới 2 videos) **Nữ~Tiến~Sĩ Trần Thị Ái Liên**
+- (LIVESTREAMING) **Nữ:Luật:Sư Trần Kiều Ngọc**
+- (PAUSED, Bị VCNằmVùngHảiNgoại chửi rủa tới 2 videos) **Nữ:Tiến:Sĩ Trần Thị Ái Liên**
 - (LIVESTREAMING, Bị VCNằmVùngHảiNgoại chửi rủa) **Mẹ Nấm (Nguyễn Ngọc Như Quỳnh)**
 - (LIVESTREAMING) **Anh Chi (Khôi Phục Tâm Thức Việt)**
 - (LIVESTREAMING) **Đoàn Thị Thùy Dương**
@@ -124,12 +124,12 @@
 - (Bị VCNằmVùngHảiNgoại chửi rủa) Hà Văn Sơn
 - (Bị VCNằmVùngHảiNgoại chửi rủa) Đỗ Ngọc Thống
 
-- (BROADCASTING) SBTN ~ ĐỌC BÁO VẸM ~ Bác Hoàng Tuấn và bác Nguyên Khôi ~
+- (BROADCASTING) SBTN : ĐỌC BÁO VẸM : Bác Hoàng Tuấn và bác Nguyên Khôi :
 - (BROADCASTING) Đài Á Châu Tự Do RFA Việt Ngữ
 - (BROADCASTING) Đài Tiếng Nói Hoa Kỳ VOA Việt Ngữ
 - (BROADCASTING) BBC Việt Ngữ
 - (BROADCASTING) Báo Người Việt
-- (LIVESTREAMING) ~ thoibao.de ~
+- (LIVESTREAMING) : thoibao.de :
 
 - (LIVESTREAMING) Sư thầy Thích Thông Lai
 - (LIVESTREAMING) Chánh khách Phạm Văn Thành
@@ -171,18 +171,20 @@
 
 ## [JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG](/JOIN-US.md)
 
-### Nhóm QUỐC-CƯỜNG Tuổi Trẻ Quốc Nội + CHỐNG Việt~Cộng Độc Quyền Tư Tưởng!!!
+### Nhóm QUỐC-CƯỜNG Tuổi Trẻ Quốc Nội + CHỐNG Việt:Cộng Độc Quyền Tư Tưởng!!!
 
-1. [KHÔNG YÊU CẦU DANH TÁNH, để tránh bị gài bẫy, bị làm mồi cho Việt~Cộng lập công](/JOIN-US.md#khong-yeu-cau-danh-tanh)
-2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC! ~ý tưởng mới, không phải Bất~Tuân~Dân~Sự~](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
-3. [ĐẤU TRANH THẬT SỰ THÌ PHẢI KHÔNG ĐỂ BỊ BẮT, KHÔNG CHO BỌN Việt~Cộng LẬP CÔNG, KHÔNG CHO Việt~Cộng ĐEM TÙ NHÂN CHÁNH TRỊ (TÙ NHÂN LƯƠNG TÂM) RA TRAO ĐỔI LẤY LỢI ÍCH HIỆP ĐỊNH THƯƠNG MẠI!](/JOIN-US.md#khong-de-bon-vc-lap-cong-trao-doi-tu-nhan)
-4. (Theo platform nền~tảng P2P) **KHÔNG XÉT LÝ LỊCH! KHÔNG PHÂN BIỆT ĐẢNG PHÁI! KHÔNG PHÂN BIỆT tiền tài nguyên của HảiNgoại hay VC!** DÙNG TIỀN CỦA Việt~Cộng ĐÃ CƯỚP CỦA DÂN ĐỂ TRẢ LẠI CHO DÂN LÀ ĐÚNG ĐẮN, KHÔNG CÓ GÌ PHẢI XẤU HỔ!
-5. [**Cẩm nang** đấu trí với bọn Việt~Cộng từ chóp~bu cho tới rau~râm](/1/cam-nang/tra-loi-dlv.md)
+1. [KHÔNG YÊU CẦU DANH TÁNH, để tránh bị gài bẫy, bị làm mồi cho Việt:Cộng lập công](/JOIN-US.md#khong-yeu-cau-danh-tanh)
+2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC! :ý tưởng mới, không phải Bất:Tuân:Dân:Sự:](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
+3. [ĐẤU TRANH THẬT SỰ THÌ PHẢI KHÔNG ĐỂ BỊ BẮT, KHÔNG CHO BỌN Việt:Cộng LẬP CÔNG, KHÔNG CHO Việt:Cộng ĐEM TÙ NHÂN CHÁNH TRỊ (TÙ NHÂN LƯƠNG TÂM) RA TRAO ĐỔI LẤY LỢI ÍCH HIỆP ĐỊNH THƯƠNG MẠI!](/JOIN-US.md#khong-de-bon-vc-lap-cong-trao-doi-tu-nhan)
+4. (Theo platform nền:tảng P2P) **KHÔNG XÉT LÝ LỊCH! KHÔNG PHÂN BIỆT ĐẢNG PHÁI! KHÔNG PHÂN BIỆT tiền tài nguyên của HảiNgoại hay VC!** DÙNG TIỀN CỦA Việt:Cộng ĐÃ CƯỚP CỦA DÂN ĐỂ TRẢ LẠI CHO DÂN LÀ ĐÚNG ĐẮN, KHÔNG CÓ GÌ PHẢI XẤU HỔ!
+5. [**Cẩm nang** đấu trí với bọn Việt:Cộng từ chóp:bu cho tới rau:râm](/1/cam-nang/tra-loi-dlv.md)
 
 ## Mô hình **GAME MODDING (Fan-made mods)**
   - Các hãng game rất trân trọng những Fan-made mods!
   - Các livestreamers văn hóa phương Tây đều trân trọng đóng góp của fans, kể cả là những comments nhỏ nhất, thậm chí còn có trò chơi theo chỉ dẫn của comments, 1 ngày sống theo votes...
-  - **Tại sao đa số Youtubers bây giờ lại quá tự cao tự đại??? Giả đò hay cố tình để gây chia rẽ, làm nản chí nhiều bạn trẻ quốc nội??????**
+  - **Tại sao đa số Youtubers (hải ngoại lẫn quốc nội) bây giờ lại quá tự cao tự đại??? Không rõ là đang giả đò hay cố tình để triệt tiêu sự hâm mộ, gây chia rẽ, làm nản chí nhiều bạn trẻ quốc nội??????**
+    - __"Các em đã làm được kênh Youtube 800K subs như anh chưa, mà đòi nói anh phải làm video kiểu này kiểu kia"__
+    - Sao nghe giống bọn Việt:Cộng Ché:Đỏ:Liếm:Bùa ngụy biện quá: __"Đã đóng góp gì cho đất nước chưa, mà đòi góp ý, ý kiến ý cò"__
 
 ## DIỆT CỘNG, KHỞI KIỆN VIỆT CỘNG
 
@@ -191,7 +193,7 @@
     - Cái "sân khấu Facebook" có scaffold quá tệ. Biểu diễn nhưng lại không góp ý chỉnh sửa platform, cứ lo cắm đầu vô đó biểu diễn thì bị nó Facebook vật là phải rồi, còn gì nữa đâu mà khóc với sầu!
   - Năm 2021, Youtuber Dưa Leo không hiểu sao lại dính lỗi ngụy biện công kích cá nhân: 
     - **"Các em đã làm được kênh Youtube 800K subs như anh chưa, mà đòi nói anh phải làm video kiểu này kiểu kia"**
-    - Sao nghe giống bọn Việt~Cộng Ché~Đỏ~Liếm~Bùa ngụy biện quá: 
+    - Sao nghe giống bọn Việt:Cộng Ché:Đỏ:Liếm:Bùa ngụy biện quá: 
       - **"Đã đóng góp gì cho đất nước chưa, mà đòi góp ý, ý kiến ý cò"**
       - **"Nghèo... ăn rau mà đòi bàn chuyện chính trị chính em"**
 
@@ -204,8 +206,8 @@
 
 - [x] Doanh nhân **Trịnh Vĩnh Bình (Vua chả giỏ) đã thắng kiện bọn VC**. VC là chuyên đi phá hoại kinh doanh sản xuất!
 - [ ] [Khởi kiện tên VC Gregory Hung Tran. **TẠI SAO LẠI ĐỂ CÁI ÁC NÓ LỘNG HÀNH**???](/1/khoi-kien/GregoryHungTran-UCZ1p8F5RXUcL81onhWAninA/list.md)
-  - Năm 2021, **doanh nhân Phil Đồng Canada (youtuber chỉ là nghề phụ) đã xử đẹp** tên Hùng-Trọc-b-ợ-đ-í-t-VC, tên VC này không dám nhắc tới doanh nhân Phil Đồng chút nào, còn đi mách lẻo với Mụ~Hằng, nhưng Mụ~Hằng vẫn không dám đấu với doanh nhân Phil Đồng Canada :)
-  - Năm 2021, Hùng-Trọc-b-ợ-đ-í-t-VC đã hết dám để video VC chửi bậy, đã xóa các video chửi hải ngoại. Nhưng lại được Mụ~Moon~Hèng~Hủ~Lậu nâng bi hâm mộ, thật không thể tin nổi cái đám b-ợ-đ-í-t-VC, quá trơ trẽn!
+  - Năm 2021, **doanh nhân Phil Đồng Canada (youtuber chỉ là nghề phụ) đã xử đẹp** tên Hùng-Trọc-b-ợ-đ-í-t-VC, tên VC này không dám nhắc tới doanh nhân Phil Đồng chút nào, còn đi mách lẻo với Mụ:Hằng, nhưng Mụ:Hằng vẫn không dám đấu với doanh nhân Phil Đồng Canada :)
+  - Năm 2021, Hùng-Trọc-b-ợ-đ-í-t-VC đã hết dám để video VC chửi bậy, đã xóa các video chửi hải ngoại. Nhưng lại được Mụ:Moon:Hèng:Hủ:Lậu nâng bi hâm mộ, thật không thể tin nổi cái đám b-ợ-đ-í-t-VC, quá trơ trẽn!
 
 ## OPEN SOURCE LÀ CÔNG KHAI & MINH BẠCH, KHÔNG PHẢI LÀ CỘNG-SẢN!
 
