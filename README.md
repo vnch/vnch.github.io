@@ -1,4 +1,4 @@
-# PROJECT YÊU-SÁCH-3-ĐẶC-KHU-DÀNH-CHO-VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
+# PROJECT YÊU:SÁCH:3:ĐẶC:KHU:DÀNH:CHO:VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
 ### [Debate / Tranh Luận] Có nên để Việt_Cộng bắt tù khi đấu tranh chống tà quyền độc tài?
 
@@ -32,7 +32,7 @@
 - Việt_Cộng lúc nào cũng khoe tư tưởng, **quân đội cũng phải theo tư tưởng Việt_Cộng**, nhưng giờ lại xấu hổ bảo vệ chế độ theo cách **đấp tiền bằng đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị**!
 - VC đang đấp mộ chế độ bằng **đồng tiền Hồ-Tặc-Tệ giá trị đứng bét thế giới, không có giá trị**
 
-### [Debate / Tranh Luận] Liệu dân Việt có thể tự lực & tự thân lật đổ Việt-Cộng?
+### [Debate / Tranh Luận] Liệu dân Việt có thể tự lực & tự thân lật đổ Việt:Cộng?
 
 - "Chị vợ" muốn chống lại "tên chồng bạo hành" trong gia đình của họ, thì cũng phải nhờ tới bên ngoài can thiệp (bên nhà ngoại, hàng xóm bên ngoài...). Khó có thể chờ đợi cho tên chồng bạo hành thay đổi khi quyền nó nắm trong tay! Chấp chị vợ nó kêu gào, khóc lóc, van xin... thì hắn ta cũng không bao giờ thay đổi!
 - 2 vợ chồng sống trong 1 gia đình, nam-nữ (đực-cái) đặc tính sinh học là không giống nhau. Việt_Cộng thì không muốn sống chung với tư tưởng khác, luôn tìm cách tiêu diệt tư tưởng khác với chúng! Việt_Cộng chính tên chồng bạo hành luôn muốn áp đặt lên chị vợ, bắt chị vợ phải răm rắp nghe theo.
@@ -48,7 +48,7 @@
 ## ! WARNING ! KẺ NÀO MỚI LÀ CỰC-ĐOAN CHỐNG-NHAU THÙ-DAI HƠN?
 
 - Nhiều năm rồi, Việt:Cộng liên tục cho 47 gây thù với hải ngoại, chê bai chửi bới VNCH. Nhưng ra sức nâng-bi-bưng-bô tung-cộng!
-- Mấy năm rồi, Việt-Cộng đang dâng 3 đặc khu cho tung-cộng 99 năm. Tại sao không cho VNCH thuê 20 năm? "20 năm ... từng ngày. Gia tài của mẹ ..."
+- Mấy năm rồi, Việt:Cộng đang dâng 3 đặc khu cho tung-cộng 99 năm. Tại sao không cho VNCH thuê 20 năm? "20 năm ... từng ngày. Gia tài của mẹ ..."
 - Hợp tác là tôn trọng lẫn nhau, còn VC thì chỉ cho hồ-kiều bưng-bô-cho-Việt:Cộng mới được đầu tư, lúc nào VC cũng muốn "ta đây cửa trên"! Thử hỏi kẻ nào mới là thù-dai & cực-đoan?
 - **Meme video Bụi Đời Phố Bolsa**: "__Anh bạn, cho tôi b-ú-c-u để giảng hòa, cùng là đồng hương với nhau mà__".../... "__Con:kẹt, bố mày cửa trên, bố mày thích gây lộn thì sao nào__"...
 - CÀ-KHỊA **Sóng Gió** (Kẻ nào mới muốn gây ra sóng gió?), cà khịa lại bài "Sóng Gió remix nhạc cách mạng b-ợ-đ-í-t-VC": 
@@ -72,7 +72,7 @@
   - Lặng nhìn bờ vai xưa, tựa đầu mình hỏi rằng khổ chưa?
     - (__sao rồi, Việt:Cộng giờ còn muốn nhìn bơ vai xưa của tung-cộng nữa không? Sướng không muốn cứ muốn khổ hay sao?__)
 
-## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG
+## ! WARNING ! SUY NGHĨ TÍCH CỰC KIỂU VIỆT:CỘNG
 
 - **SUY:NGHĨ TÍCH CỰC KIỂU VIỆT-CỘNG** là phải không biết xấu hổ khi đồng tiền in hình lãnh-tụ của-VC-duy-nhất-độc-tôn có GIÁ TRỊ THẤP NHẤT THẾ GIỚI. Vẫn phải tự hào đi xuất khẩu-lao-động, chui-container-lạnh... hơn 20 năm mà hồ-tệ vẫn càng ngày càng rớt giá!
 - **SUY NGHĨ TÍCH:CỰC KIỂU VIỆT-CỘNG** là phải không được sân si với triều-đình-VC (không được biểu tình, không được lập đảng mới), phải bưng bô như **Mụ-Moon-Hèng-Hủ**, nếu không sẽ bị coi là vô ơn. Suy nghĩ kiểu VC thì không khác gì đang chửi ông Phật Buddha (Bụt đà), đã từ bỏ thiên đàng do vua cha dựng ra trong hoàng cung, để tạo lập ra tôn giáo bình đẳng: **Chúng sanh ai cũng có thể thành Phật**.
@@ -169,9 +169,9 @@
 | ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/public/static/images/3DacKhu.map.2.jpg) | ![SAIGON-PHONE HAY SAMSUNG?](/public/static/images/SaiGonPhone-vs-Samsung.2.jpg) |
 | Ông Bụt Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Chỉ có VC bơm vô đầu dân "để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"!!! | ![saigon-phone-tesla-gigafactory](/public/static/images/saigon-phone-tesla-gigafactory.png) |
 
-## [JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC-CƯỜNG](/JOIN-US.md)
+## [JOIN US - LỢI ÍCH KHI THAM GIA LÀM DỰ ÁN VỚI NHÓM QUỐC CƯỜNG](/JOIN-US.md)
 
-### Nhóm QUỐC-CƯỜNG Tuổi Trẻ Quốc Nội + CHỐNG Việt:Cộng Độc Quyền Tư Tưởng!!!
+### Nhóm QUỐC CƯỜNG Tuổi Trẻ Quốc Nội CHỐNG Việt:Cộng:Độc:Quyền:Tư:Tưởng!!!
 
 1. [KHÔNG YÊU CẦU DANH TÁNH, để tránh bị gài bẫy, bị làm mồi cho Việt:Cộng lập công](/JOIN-US.md#khong-yeu-cau-danh-tanh)
 2. [CÓ CÁCH BIỂU TÌNH MÀ BỌN VC KHÔNG THỂ BẮT ĐƯỢC! :ý tưởng mới, không phải Bất:Tuân:Dân:Sự:](/JOIN-US.md#bieu-tinh-khong-de-bi-bat-tu-day)
@@ -220,19 +220,20 @@
 
 - 2021/08/01: Youtube N10TV Trương Quốc Huy đã bị Mụ-Moon-Hèng-Hạ-Hủ báo cáo report không thể live stream. Channel mới tạo "N10TV ... 2nd" thì bị bọn VC giả mạo, sau đó report láo lừa Youtube's System làm xóa mất kênh chính chủ, kênh giả thì được Youtube's System đưa lên làm kênh thật!!!
   - Quá nản, đã góp ý cho N10TV từ năm 2019, nhưng anh ấy chê **"Dự án chống giả mạo kênh"** của chúng tôi!
-  - Nản tập 2, không hiểu đội-cố-vấn của kênh N10TV nghĩ gì mà lại dùng QR-Code để chống giả mạo kênh! QR-Code mục đích chính là truyền tải data, chớ nó không thể chống giả mạo. Bọn Việt-Cộng hoàn toàn có thể đè hình QR-Code giả của chúng nó ghép lên video gốc, sau đó kéo bầy đàn đông hung hãn của chúng nó share ra để đè bẹp kênh chính chủ!
+  - Nản tập 2, không hiểu đội-cố-vấn của kênh N10TV nghĩ gì mà lại dùng QR-Code để chống giả mạo kênh! QR-Code mục đích chính là truyền tải data, chớ nó không thể chống giả mạo. Bọn Việt:Cộng hoàn toàn có thể đè hình QR-Code giả của chúng nó ghép lên video gốc, sau đó kéo bầy đàn đông hung hãn của chúng nó share ra để đè bẹp kênh chính chủ!
 - [x] Bọn VC đã lừa bịp Youtube's System với chiêu bài **"nội dung xấu độc"**. Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước! Kênh ở hải ngoại không xóa được thì chúng nó chặn không có coi ở Vietnam!
 
-### NHỮNG TRÒ GÂY CHIA RẼ CÔ LẬP CỦA BỌN THÚ HOANG VIỆT-CỘNG
+### NHỮNG TRÒ GÂY CHIA RẼ CÔ LẬP CỦA BỌN THÚ HOANG VIỆT:CỘNG
 
-- Bắt bớ dân chủ kiểu ngẫu hứng, người thì bắt ngay, người thì để lâu không bao giờ bắt. Mục đích là gây chia rẽ nghi ngờ lẫn nhau trong giới đấu tranh cho dân chủ, suốt ngày đi xét người nào là VC nằm vùng, mà quên mất phải lật đổ VC trước đã!
-  - Giải quyết: **MÔ HÌNH KHÔNG CHO VIỆT-CỘNG LẬP CÔNG**
-  - Giải quyết: Dân chủ phải nghĩ ra cách làm dự án mà bọn VC có biết cũng không có cớ để bắt.
-  - Giải quyết: Hạn chế cách làm xưa cũ kiểu hội kín thiên địa hội... CS rất giỏi cài cắm hai mang. Không còn thông tin mật thì VC cũng hết cái để lập công, chúng sẽ rối loạn mục tiêu, không biết phương hướng để phá!
+- Bắt bớ dân chủ kiểu ngẫu hứng, người thì bắt liền, người thì để lâu không bao giờ bắt, người thì nó thả tù liền, người thì nó để lâu quá hạn tù cũng không chịu thả. 
+- Mục đích là gây chia rẽ nghi ngờ lẫn nhau trong giới đấu tranh cho dân chủ, suốt ngày đi xét người nào là Việt:Cộng nằm vùng, mà **quên mất phải lật đổ Việt:Cộng trước đã**!
+  - Giải quyết: **MÔ HÌNH KHÔNG CHO VIỆT:CỘNG LẬP CÔNG**
+  - Giải quyết: **Dân chủ phải nghĩ ra cách làm dự án mà bọn Việt:Cộng có biết cũng không có cớ để bắt.**
+  - Giải quyết: **Hạn chế cách làm xưa cũ kiểu hội kín thiên địa hội... CS rất giỏi cài cắm hai mang. Không còn thông tin mật thì Việt:Cộng cũng hết cái để lập công, chúng sẽ rối loạn mục tiêu, không biết phương hướng để phá!**
 
 ### MÔ HÌNH KHÔNG CHO VIỆT-CỘNG LẬP CÔNG
 
-- Dự án lật đổ Việt-cộng sẽ là mô hình Open Source, chỉ giữ bí mật thông-tin-cá-nhân để tránh bị gài bẫy!
+- Dự án lật đổ Việt:Cộng sẽ là mô hình Open Source, chỉ giữ bí mật thông-tin-cá-nhân để tránh bị gài bẫy!
 - Khi không còn cá-nhân để bọn Việt-cộng bắt giữ, gài bẫy, giam cầm, đem trao đổi tù nhân lương tâm... thì chúng sẽ hết cái để lập công tráo trở gian manh xảo trá!
   - Các dự án IT trước kia quý giá nhất là Source Code.
   - Khi Open Source nhiều, thì tài sản quý nhất sẽ là dữ liệu thông tin cá nhân (Personal Information).
@@ -243,8 +244,8 @@
 1. Email: quoccuong (at) protonmail.com
 2. Chat VNCH [gitter.im/vnch](https://gitter.im/vnch/community?utm_source=link) [![Gitter](https://badges.gitter.im/vnch/community.svg)](https://gitter.im/vnch/community?utm_source=badge)
 2. Chat Saigon-Phone [gitter.im/saigon-phone](https://gitter.im/saigon-phone/community?utm_source=link)
-2. Chat: [Matrix @quoccuong:matrix.org](https://matrix.to/#/@quoccuong:matrix.org)
-2. Chat Room: [Matrix Room #vietnam:matrix.org](https://matrix.to/#/!sKBidzLKqCbfOspapM:matrix.org)
+2. Chat Matrix: [Matrix @quoccuong:matrix.org](https://matrix.to/#/@quoccuong:matrix.org)
+2. Chat Matrix Room: [Matrix Room #vietnam:matrix.org](https://matrix.to/#/!sKBidzLKqCbfOspapM:matrix.org)
 3. Reddit: [/r/newvnch](https://www.reddit.com/r/newvnch/), [The New Việt Nam Cộng Hòa](https://www.reddit.com/r/newvnch/)
 
 ### GIAO KÈO ĐỒNG THUẬN
@@ -255,29 +256,37 @@
 
 ### Review Phim
 
-- Phim 'The Platform' (Hố Sâu Đói Khát) trên Netflix bị bọn ché-đỏ-liếm-bùa nói ngược, chúng nó quên luôn chính platform mới là thủ phạm chính
-  - Năm 2021, Việt-Cộng đẩy dân Sài Gòn vô cái Platform do chúng nó tạo ra viện cớ lý do dịch bệnh. Mục đích là để chúng bán phát thức ăn (đi mua bánh mì chúng cũng không cho), ban phát vac-cine theo từng tầng giai cấp (không theo tuổi tác), **tầng-trên** (cháu ông ngoại) thì xài loại xịn, tiêm chích không chừa chút nào cho tầng-dưới, còn lấy y tá ra làm tốt thí
-  - Phim rõ ràng nói về một platform được tạo ra giống hệt kiểu BAO-CẤP-CỘNG-SẢN.
+- Phim **'Squid Game' (2021)** trên Netflix
+  - Đề tài phim không mới, cái mới lạ chính là bọn Việt:Cộng:Con lũ nó lại khoái share phim này! Tại sao lũ Việt:Cộng:Con nó khoái? Liệu có phải là do chơi game PUBG, Fire Free nhiều, rồi khoái vì thấy phim này cùng đề tài?
+  - Còn phim **'Money Heist' (La Casa de Papel / Cái nhà bằng giấy) (Phi Vụ Triệu Đô)** đã ra SEASON 5, nhiều __mô hình xây dựng teamwork & giúp đỡ sửa chữa sai lầm cho nhau, với mục tiêu chung lật đổ bọn tà quyền__, thì không thấy lũ Việt:Cộng:Con nó share, thì chứng tỏ lũ Việt:Cộng:Con chúng nó đang có mưu đồ bơm vô đầu giới trẻ tự diệt lẫn nhau như mô hình trong Squid Game!
+  - Lũ VC khoái nhất là những phim **DÂN TỰ DIỆT LẪN NHAU** a.k.a **ĐẤU TỐ CẢI CÁCH RUỘNG ĐẤT**, hạn chế đội nhóm hợp tác, tất cả phải chia rẽ nhau ra, chỉ nghĩ tới lợi ích bản thân... có vậy thì lũ nó mới được ăn trên ngồi chóc để thiết kế tiếp **Trò Chơi Xuống:Hố:Cả:Nút** cho dân đen chơi tiếp chớ
+  - Phim này tệ tới mức đã không đề cao đội nhóm, mà còn làm lu mờ mô hình **'trong dân tự đứng lên' hack sập cái Trò Chơi và bọn chóp bu đã tạo ra trò chơi ác quỷ**
+  - Phim còn nhắc đểu: Nhân vật chính có thắng game, có nhiều tiền rồi, cũng không thể lật được tên **Tớ Lú Đầu Bạc ác quỷ** & và khách VIP... đã đứng sau tài trợ tạo ra trò chơi ác quỷ, mà còn phải cảm ơn vì **"đã giúp đỡ vượt qua đại dịch"**, đã cho 1 bài học sâu-xuất-mẹ-nó-sắc!!!
+
+- Phim **'Money Heist' (La Casa de Papel / Cái nhà bằng giấy) (Phi Vụ Triệu Đô)** trên Netflix
+  - Ám chỉ sự phản kháng lại bọn tà-quyền in tiền vô tội vạ
+  - Bọn Việt:Cộng cố tình thao túng tiền tệ, làm mất giá đồng-tiền-in-hình-lãnh-tụ-của-Việt:Cộng.
+  - Ché:đỏ:liếm:bùa đâu có tôn kính gì lãnh tụ in trên tờ tiền của chúng nó, chúng không biết xấu hổ khi làm 'đồng-tiền-in-hình-lãnh-tụ-Việt:Cộng' bị mất giá & đứng bét thế giới!
+  - Đúng ra phim này phải được làm ra ở xứ Việt:Cộng vì đồng tiền Việt:Cộng đang có nhiều số 0 mất giá nhất thế giới!
+
+- Phim **'The Platform' (Nền tảng) (Hố Sâu Đói Khát)** trên Netflix bị bọn ché-đỏ-liếm-bùa nói ngược, chúng nó quên luôn chính platform mới là thủ phạm chính
+  - Năm 2021, Việt:Cộng đẩy dân Sài Gòn vô cái Platform do chúng nó tạo ra viện cớ lý do dịch bệnh. Mục đích là để chúng bán phát thức ăn (đi mua bánh mì chúng cũng không cho), ban phát vac-cine theo từng tầng giai cấp (không theo tuổi tác), **tầng-trên** (cháu ông ngoại) thì xài loại xịn, tiêm chích không chừa chút nào cho tầng-dưới, còn lấy y tá ra làm tốt thí
+  - Phim rõ ràng nói về một platform được tạo ra giống hệt kiểu BAO:CẤP:CỘNG:SẢN.
   - Chính cái platform cố tình hạn chế nguồn cung, hạn chế tư duy sáng tạo, hạn chế đủ thứ.... Từ những hạn chế dốt nát đó mới khơi ra cái ác của con người. Giống hệt kiểu quản lý ngu dốt kiểu cộng sản thời bao cấp, làm cho thiếu thốn đủ thứ. Tới thế kỷ 21 mà VC vẫn thiếu luôn tự do ngôn luận, thiếu luôn tự do ứng cử tranh cử... dù chúng nó luôn ra rả cái mồm là nước dân chủ, nước xã hội chủ nghĩa!
-  - Nhóm nhân vật chính trong phim là đề cao chủ nghĩa dân túy. Họ đứng lên chống lại cái platform BAO-CẤP-CỘNG-SẢN tào lao dốt nát. Chống lại cái nhà tù khổ sai không có nhân quyền, không cho tù nhân ý kiến, bày tỏ nguyện vọng... không khác gì bọn VC ở thế kỷ 21!
+  - Nhóm nhân vật chính trong phim là đề cao chủ nghĩa dân túy. Họ đứng lên chống lại cái platform BAO:CẤP:CỘNG:SẢN tào lao dốt nát. Chống lại cái nhà tù khổ sai không có nhân quyền, không cho tù nhân ý kiến, bày tỏ nguyện vọng... không khác gì bọn VC ở thế kỷ 21!
   - Ché-đỏ-liếm-bùa lại nghĩ ngược, cho rằng tù-nhân (dân-chúng) là ngu dốt mới tranh giành thức ăn. Ché-đỏ lúc nào cũng muốn để cao sự lãnh đạo của đảng chúng nó, dân phải ít đòi hỏi để đảm bảo bình an, dù có chết-đói cũng phải ràng giữ chế độ. Ché-đỏ cũng quên mất Karl Marx đã nói phải tích lũy tư bản (lương thực đủ đầy) thì mới có cộng sản, chứ không phải kiểu cai trị thằng chột làm vua xứ mù, thằng mập làm vua xứ gầy!
 
-- Phim 'Money Heist' (Phi Vụ Triệu Đô) trên Netflix
-  - Ám chỉ sự phản kháng lại bọn tà-quyền in tiền vô tội vạ
-  - Bọn VC cố tình thao túng tiền tệ, làm mất giá đồng-tiền-in-hình-lãnh-tụ-của-VC. Ché-đỏ đâu có tôn kính gì lãnh tụ in trên tờ tiền của chúng nó, chúng không biết xấu hổ khi làm 'đồng-tiền-in-hình-lãnh-tụ-VC' bị mất giá đứng bét thế giới!
-  - Đúng ra phim này phải được làm ra ở xứ Việt-Cộng vì đồng tiền VC đang có nhiều số 0 mất giá nhất thế giới!
-
-- Phim Vivarium (2019)
-  - Năm 2021, Việt-Cộng lợi dụng dân góp tiền vac-cine, nhưng mẹ của cháu của "ông ngoại" đòi Pfi-zer hàng Mỹ+Đức
+- Phim **Vivarium (2019)**
+  - Năm 2021, Việt:Cộng lợi dụng dân góp tiền vac-cine, nhưng mẹ của cháu của "ông ngoại" đòi Pfi-zer hàng Mỹ+Đức
    - Dân VN sẽ tự đào hố chôn, vì sẽ được tiêm vac-cine hàng tàu do các đại-tư-sản-cộng bưng-bô bợ-đít tung-cộng lấy tiền được hỗ trợ để mua về. Thú vị nhất là các sếp dù hồi xưa du học tung-cộng & liên-xô-cộng, nhưng toàn đã tiêm vac-cine Mỹ Mãn
   - Chỉ rõ sự xảo trá của bọn CS (chim tu hú). VC năm 2020 nhận tiền viện trợ y tế của Hoa Kỳ hơn 100 triệu USD, nhưng lại cấu kết với tung-cộng để che dấu dịch, đánh tráo nguồn gốc dịch, vẽ ra những dấu vết tào lao: dịch tồn tại trên hàng hải sản nhập khẩu từ phương Tây!
-  - Xứ Việt-Cộng & Tung-Cộng là chuyên gia thổi giá bất động sản. Bọn này đi tới đâu là phá thị trường tới đó, làm cho dân bản địa khó mua nhà hơn
+  - Xứ Việt:Cộng & Tung:Cộng là chuyên gia thổi giá bất động sản. Bọn này đi tới đâu là phá thị trường tới đó, làm cho dân bản địa khó mua nhà hơn
   - Ché đỏ thì dù đi du học thì cũng không văn minh hơn, mà sẽ giống chim tu hú, học xong rồi cũng cung phụng bọn tà quyền độc đảng độc tài!
 
-- Phim 'Matrix' (Ma trận)
+- Phim **'Matrix' (Ma trận)**
   - Năm 2021, VC lợi dụng tài nguyên của dân&rau-răm, để bơm vac_cine hàng Mỹ+Đức cho con ông ngoại
     - Con ông ngoại được tiêm hàng ngon xong, thì bọn VC reset lại matrix, thí tốt tẩy não là xong phim
-  - Nói về cái thiên đàng giả do bọn cai trị tạo ra, giống hệt bọn CS mị dân bằng sự giả tạo
+  - Nói về cái **thiên đàng giả** do bọn cai trị tạo ra, giống hệt bọn CS mị dân bằng sự giả tạo
 
 ### News
 
@@ -317,7 +326,7 @@
   - Hít-cơ Nhâm-Gia-Lẹo là dạng rau-răm hoang tưởng, tìm mấy cái bài thơ rồi thẩm-du cho rằng có-phẻn-động, phẻn-động đang âm mưu ra ám hiệu. Cái lùm mía, cười té ghế với thằng hít-cơ hoang tưởng này.
 
 - CÁC SỰ KIỆN ĐÁNH LẠC HƯỚNG DỰ DÂN KHI VC ĐANG TỔ CHỨC ĐẠI HỘI
-  - Mụ-Moon-Hèng-Hủ lên mạng live stream, giả đò khóc lóc đòi bán hết tài sản rời khỏi Việt-Cộng
+  - Mụ-Moon-Hèng-Hủ lên mạng live stream, giả đò khóc lóc đòi bán hết tài sản rời khỏi Việt:Cộng
   - Vụ kiện VinPhét tố khách hàng
   - Ra mắt con hàng hít-cơ HẻoPC. HẻoWC không thấy xung phong đi tiêm vac-cine hàng tung-cộng
   - Trẻ trâu du học Úc châu, đi xé cờ vàng, chửi bới sỉ nhục cờ vàng
@@ -352,17 +361,17 @@
   - Đừng đưa tin tiêu-cực về bão lũ, sạc lỡ ở miền Trung. Bão lũ là chuyện của ông trời, chứ xứ thiên đường thì làm gì có bão lũ.
   - Đừng đưa tin tiêu-cực về ô nhiễm rác thải, rác nhựa... ở các xứ khác. Xứ VC thì đâu có rác thải hay ô nhiễm gì đâu, Formosa vẫn sạch sẽ lắm)
 
-### Cẩm Nang Chống Luận Điệu "Không Được Can Thiệp Nội Bộ" của Việt-Cộng & Tung-Cộng
+### Cẩm Nang Chống Luận Điệu "Không Được Can Thiệp Nội Bộ" của Việt:Cộng & Tung:Cộng
 
-- 99% các vụ bạo hành đánh trẻ em, giáo viên đánh học sinh, đánh vợ đánh con... đều được phanh phui nhờ đưa video lên mạng internet Facebook & Youtube... Nhờ đưa lên internet thì người bên ngoài mới biết được sự việc bạo hành của bọn Việt-Cộng
-- Việt-Cộng thực hiện chặn mạng, xóa mạng internet Facebook & Youtube, thì Việt-Cộng chính là kẻ trùm bạo hành với dân trong nước. Dân Việt bắt buộc phải nhờ bên ngoài can thiệp trợ giúp, chứ không thể nào tự cứu được!
-- Trong một KHU PHỐ, có nhiều gia đình, có một gia đình có cha mẹ đánh đập bạo hành con cái của chính họ. Theo "lý luận của VC & Tung-Cộng", thì các nhà hàng xóm không nên can thiệp chuyện nội bộ của gia đình đang bạo hành trẻ em kia! Đó là chuyện nội bộ của gia đình đó!
-- Trên một TRÁI ĐẤT, nhiều quốc gia xả thải kỹ nghệ cũ làm ô nhiễm bầu khí quyển. Theo "lý luận của VC & Tung-Cộng" thì các quốc gia khác không nên can thiệp chuyện xả thải nội bộ của các quốc gia đang xả thải!!! Đó là chuyện nội bộ của quốc gia đang xả thải! Trái Đất là nội bộ của Vũ Trụ chứ không phải của các quốc gia ý kiến đòi bảo vệ môi trường nhá!
+- 99% các vụ bạo hành đánh trẻ em, giáo viên đánh học sinh, đánh vợ đánh con... đều được phanh phui nhờ đưa video lên mạng internet Facebook & Youtube... Nhờ đưa lên internet thì người bên ngoài mới biết được sự việc bạo hành của bọn Việt:Cộng
+- Việt:Cộng thực hiện chặn mạng, xóa mạng internet Facebook & Youtube, thì Việt:Cộng chính là kẻ trùm bạo hành với dân trong nước. Dân Việt bắt buộc phải nhờ bên ngoài can thiệp trợ giúp, chứ không thể nào tự cứu được!
+- Trong một KHU PHỐ, có nhiều gia đình, có một gia đình có cha mẹ đánh đập bạo hành con cái của chính họ. Theo "lý luận của VC & Tung:Cộng", thì các nhà hàng xóm không nên can thiệp chuyện nội bộ của gia đình đang bạo hành trẻ em kia! Đó là chuyện nội bộ của gia đình đó!
+- Trên một TRÁI ĐẤT, nhiều quốc gia xả thải kỹ nghệ cũ làm ô nhiễm bầu khí quyển. Theo "lý luận của Việt:Cộng & Tung:Cộng" thì các quốc gia khác không nên can thiệp chuyện xả thải nội bộ của các quốc gia đang xả thải!!! Đó là chuyện nội bộ của quốc gia đang xả thải! Trái Đất là nội bộ của Vũ Trụ chứ không phải của các quốc gia ý kiến đòi bảo vệ môi trường nhá!
 
-### Nghiệp của Việt-Cộng 2020-2030
+### Nghiệp của Việt:Cộng 2020-2030
 
-- [x] Việt-Cộng bắt nạt dân thì bị đầu gấu Tung-Cộng nó bắt nạt lại, không dám ho hé gì.
-- [x] Việt-Cộng muốn đi chơi với bạn Mỹ, nhưng bị đầu gấu Tung-Cộng nó giằng mặt, nó khống chế, nó bạo hành, nó giam cầm... không có đi đâu chơi hết.
+- [x] Việt:Cộng bắt nạt dân thì bị đầu gấu Tung:Cộng nó bắt nạt lại, không dám ho hé gì.
+- [x] Việt:Cộng muốn đi chơi với bạn Mỹ, nhưng bị đầu gấu Tung:Cộng nó giằng mặt, nó khống chế, nó bạo hành, nó giam cầm... không có đi đâu chơi hết.
 
 ### ACT-PROJECT vụ Đồng Tâm, Mỹ Đức, Hà Nội
 
@@ -376,9 +385,9 @@
 
 - Chụp hình, xịt sơn, live stream... trước NHÀ RIÊNG BỌN QUAN TÒA VC, giống vụ tên Nguyễn Hữu Linh
 
-### THỜI TƯƠNG LAI - Việt-Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP?
+### THỜI TƯƠNG LAI - Việt:Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP?
 
-| THỜI TƯƠNG LAI - Việt-Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP? |
+| THỜI TƯƠNG LAI - Việt:Cộng sẽ đóng vai trò gì trong thể chế TAM-QUYỀN-PHÂN-LẬP? |
 | :------------- |
 | VC **giỏi phá và đánh chiếm**. Giao nhiệm vụ cho **VC đi đánh chiếm lại Hoàng Sa**. Sau đó chiếm tới Taiwan, chiếm tới South Korea và Japan, cuối cùng chiếm hết China thống nhất Á Đông :D VC vỗ ngực xưng tên **Đế Chế Đông Lào** 🤣🤣🤣 |
 | VC **giỏi ganh ghét người làm thương mại**. Giao nhiệm vụ cho **VC đi điều tra giặt-tiền, trốn-thuế, gian-lận-thương-mại**... của các tập đoàn tung-cộng |
@@ -406,13 +415,13 @@
 ## TOC
 
 - [GIÁM SÁT CHẤT LƯỢNG - SỰ TỆ HẠI CỦA VC](#giám-sát-chất-lượng)
-  - [Việt-Cộng năm 2020 **KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](#giám-sát-chất-lượng)
-  - [VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**](#giám-sát-chất-lượng)
-  - [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](#giám-sát-chất-lượng)
-  - [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](#giám-sát-chất-lượng)
+  - [Việt:Cộng năm 2020 **KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](#giám-sát-chất-lượng)
+  - [Việt:Cộng là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**](#giám-sát-chất-lượng)
+  - [Việt:Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](#giám-sát-chất-lượng)
+  - [Việt:Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](#giám-sát-chất-lượng)
 - [KIẾN TẠO](#kiến-tạo)
   - [**YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU**](#yêu-sách-3-đặc-khu-vnch--trưng-cầu-dân-ý--rồng-2-đầu)
-  - [Việt-Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**](#kiến-tạo)
+  - [Việt:Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**](#kiến-tạo)
   - [Ý tưởng bầu cử bằng **thi đấu bóng đá**](#kiến-tạo)
   - [Tất cả nhân dân đều có quyền ra **ứng cử và thành lập đảng mới**](#kiến-tạo)
 - [GIẢI ẢO, TƯ DUY, SO SÁNH](#giải-ảo-tư-duy-so-sánh)
@@ -426,9 +435,9 @@
 ## GIÁM SÁT CHẤT LƯỢNG
 
 ### SỰ TỆ HẠI CỦA VC
-- [x] (Quá tệ) [Việt-Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](/1/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
+- [x] (Quá tệ) [Việt:Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại**](/1/giam-sat-chat-luong/viet-cong-2020-khong-lam-duoc-gi.md)
 
-| (Quá tệ) Việt-Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại** |
+| (Quá tệ) Việt:Cộng **năm 2020 KHÔNG làm được gì dù vỗ ngực xưng danh đánh Nhật, đánh Pháp, đánh Mỹ 30/4 vĩ đại** |
 | :------------- |
 | VC năm 2020/.. **KHÔNG** biết tự tạo và in ra **TIỀN POLYMER** |
 | VC năm 2020/01 **KHÔNG** làm được **MÁY TÍNH ĐIỆN TOÁN LƯỢNG TỬ** |
@@ -450,12 +459,12 @@
 | VC năm 2020/17 **KHÔNG** làm được **VŨ KHÍ NGUYÊN TỬ, ĐẦU ĐẠN HẠT NHÂN** |
 
 - [x] (Quá tệ) VC là loại không những **thù dai nhỏ mọn** mà còn **vừa hám danh vừa hám lợi**
-- [x] (Quá tệ) [Việt-Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/1/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
-- [x] (Quá tệ) [Việt-Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/1/vncs-tu-nhuc/tu-nhuc.md)
+- [x] (Quá tệ) [Việt:Cộng **HÒA HỢP HÒA GIẢI GIẢ CẦY**!](/1/giam-sat-chat-luong/vc-hoa-hop-hoa-giai-gia-cay.md)
+- [x] (Quá tệ) [Việt:Cộng tạo ngày 30/4 **làm dân Vietnam 'TỰ NHỤC'**](/1/vncs-tu-nhuc/tu-nhuc.md)
 
 ## KIẾN TẠO
 
-- [ ] [Việt-Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**, sẽ thành rồng 2 đầu, cơ hội vô World Cup tăng lên!](/1/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
+- [ ] [Việt:Cộng KHÔNG chịu cho VNCH lập thêm 1 **đội bóng đá**, sẽ thành rồng 2 đầu, cơ hội vô World Cup tăng lên!](/1/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
 - [ ] [Ý tưởng bầu cử bằng **thi đấu bóng đá**](/1/kien-tao/doi-bong-da-dac-khu-vnch_bau-cu-thi-dau-bong-da.md)
 - [ ] [Tất cả nhân dân đều có quyền ra **ứng cử và thành lập đảng mới**!](/1/kien-tao/dan-ung-cu-thu-tuong.md)
 
