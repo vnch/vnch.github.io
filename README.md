@@ -218,9 +218,18 @@
 
 #### Hải ngoại cần lập Youtube Network để bảo vệ các kênh đấu tranh dân chủ ở Việt Nam
 
-- 2021/08/01: Youtube N10TV Trương Quốc Huy đã bị Mụ-Moon-Hèng-Hạ-Hủ báo cáo report không thể live stream. Channel mới tạo "N10TV ... 2nd" thì bị bọn VC giả mạo, sau đó report láo lừa Youtube's System làm xóa mất kênh chính chủ, kênh giả thì được Youtube's System đưa lên làm kênh thật!!!
+- 2021/08/01: Youtube N10TV Trương Quốc Huy đã bị Mụ-Moon-Hèng-Hạ-Hủ báo cáo report không thể live stream. Channel mới tạo "N10TV ... 2nd" thì bị bọn Việt:Cộng giả mạo, sau đó report láo lừa Youtube's System làm xóa mất kênh chính chủ, kênh giả thì được Youtube's System đưa lên làm kênh thật!!!
   - Quá nản, đã góp ý cho N10TV từ năm 2019, nhưng anh ấy chê **"Dự án chống giả mạo kênh"** của chúng tôi!
-  - Nản tập 2, không hiểu đội-cố-vấn của kênh N10TV nghĩ gì mà lại dùng QR-Code để chống giả mạo kênh! QR-Code mục đích chính là truyền tải data, chớ nó không thể chống giả mạo. Bọn Việt:Cộng hoàn toàn có thể đè hình QR-Code giả của chúng nó ghép lên video gốc, sau đó kéo bầy đàn đông hung hãn của chúng nó share ra để đè bẹp kênh chính chủ!
+  - Nản tập 2, không hiểu đội-cố-vấn của kênh N10TV nghĩ gì mà lại dùng QR-Code để chống giả mạo kênh! **QR-Code mục đích chính là truyền tải data, chớ nó không thể chống giả mạo**. Bọn Việt:Cộng hoàn toàn có thể đè hình QR-Code giả của chúng nó ghép lên video gốc, sau đó kéo bầy đàn đông hung hãn của chúng nó share ra để đè bẹp kênh chính chủ!
+  - Nản tập 3, N10TV dính cái **nghiệp than thở**, những người **đưa ra dự án lật bọn Việt:Cộng thì ngó lơ**, chỉ **giỏi để ý kỹ rồi "ấm ức & ngồi than thở" những ý kiến dèm pha: sao không lên live, sao cứ quay xe cộ, giờ này 3h sáng còn lên live...**
+    - Lạ 1 cái là cứ hay để ý tới mấy cái comments nhảm (trolling), còn nhiều bạn trẻ nói dự án thì lại bị ngó lơ. 
+    - Mà đa phần toàn đưa tin những cái bọn Việt:Cộng nó gài mồi, đúng ý đồ của lũ Việt:Cộng
+    - Tóm gọn thành câu: bò:đỏ (ché:đỏ:liếm:bùa) đông mấy cũng không sợ, chỉ sợ các dự án làm sụp Việt:Cộng hết tin đưa?
+  - Nản tập 4, cày hết videos của N10TV mới phát hiện N10TV **ngồi khóc khi coi video bà con quốc nội bị Việt:Cộng:Covid nó hành hạ**, nhưng tới đoạn đọc comments của bạn nào đó **nhờ đứng lên kêu gọi chống Việt:Cộng thì lại nói: dân phải tự đứng lên???** 
+    - Bộ không biết __dân đang sống trong tà quyền__ hay sao mà nói vậy cũng nói được! Nếu tự đứng được thì đã lật Việt:Cộng lâu rồi, đâu cần hải ngoại phải lên tiếng giùm. Nản luôn! 
+    - Hongkong có nhiều supports mà còn bị dập te tua, thì thử hỏi quốc nội VN cần bao nhiêu người đi tù & phải sống sao mới vừa lòng hải ngoại đây???
+    - Quốc nội VN Ngày nào cũng ngồi coi tin tức (video nào cũng cả tiếng đồng hồ) thì hải ngoại hài lòng? Coi từ năm này qua năm khác, coi từ thời còn các diễn đàn... mà vẫn chưa thấy ngán hay sao? 
+    - **Mịa:kiếp:đậu:má coi tin tức gần 10 năm nay ngán tới tận cổ rồi!!!!!!**
 - [x] Bọn VC đã lừa bịp Youtube's System với chiêu bài **"nội dung xấu độc"**. Chúng nó để viện cớ đó để xóa các kênh đấu tranh dân chủ của anh chị em trong nước! Kênh ở hải ngoại không xóa được thì chúng nó chặn không có coi ở Vietnam!
 
 ### NHỮNG TRÒ GÂY CHIA RẼ CÔ LẬP CỦA BỌN THÚ HOANG VIỆT:CỘNG
