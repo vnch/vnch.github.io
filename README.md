@@ -1,5 +1,12 @@
 # PROJECT YÊU:SÁCH:3:ĐẶC:KHU:DÀNH:CHO:VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
+### 2024 UPDATE YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý Mỹ-Úc-Nhật-Hàn "đối tác chiến lược toàn diện"
+
+- Nếu VietCọng chịu mở 3-đặc-khu, thì giờ đã có 3 khu cho các hãng Intel, NVIDIA, TSMC... chứ đâu có bị các hãng này rút hết!
+- Mỗi nơi mời mỗi nước trong 4 cường quốc **Mỹ-Úc-Nhật-Hàn** mới vừa kí "đối tác chiến lược toàn diện".
+- Còn đối tác **ChungTươngLai** thì cho 3 khu ở ngoài BaĐình.
+- Chỉ nguyện chung bàn nhậu thôi, còn nhà nó sập thì kệ nó chứ, không ChungVậnMệnh đâu nhé!!!
+
 ### [Debate / Tranh Luận] Có nên để Việt_Cộng bắt tù khi đấu tranh chống tà quyền độc tài?
 
 - Thống kê hơn 25 năm (1/4 thế kỷ) (từ khi Vietnam có internet), đã có bao nhiêu tù nhân lương tâm bị Việt_Cộng bắt tù? (chưa tính số bị trù dập, bị côn-ẳng vây quanh ngoài đời)
