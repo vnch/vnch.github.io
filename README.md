@@ -1,5 +1,16 @@
 # PROJECT YÊU:SÁCH:3:ĐẶC:KHU:DÀNH:CHO:VNCH & TRƯNG CẦU DÂN Ý | RỒNG 2 ĐẦU
 
+### Dự án Khôi Phục VNCH 2 triệu người hải ngoại ᕙ(⇀‸↼‶)ᕗ
+
+- (ʘ‿ʘ)╯ Giả sử khôi phục lại trên hòn đảo bỏ hoang.
+Với 2 triệu người hải ngoại, $10/người thì dư tiền mua chục đảo.
+Cải tạo sửa chữa xong vẫn còn dư tiền xây hạ tầng!
+- ♥‿♥ Sau đó tôi xin ra đảo tham mở startup toàn cầu,
+nhận đầu tư vô tư giống kiểu Singapore/Taiwan/Timor-leste,
+không còn bị bọn VietCọng gây khó dễ vòi vỉn chèn ép bắt nạt nữa!
+- (҂◡_◡) ᕤ Kệ mợ bọn DLV sủa gì thì sủa, ai rảnh đâu suốt ngày nói qua chửi lại với chúng nó.
+Cứ tới tháng 4 là bọn nó lại xua quân, đúng là hết thuốc chữa cái bọn DLV
+
 ### 2024 UPDATE YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý Mỹ-Úc-Nhật-Hàn "đối tác chiến lược toàn diện"
 
 - Nếu VietCọng chịu mở 3-đặc-khu, thì giờ đã có 3 khu cho các hãng Intel, NVIDIA, TSMC... chứ đâu có bị các hãng này rút hết!
